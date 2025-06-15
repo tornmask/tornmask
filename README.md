@@ -28,4 +28,24 @@
 ### GRLwood
 ### Penelope Scott
 ### Dazey and the Scouts
-### and 99+ others !  
+### and 99+ others !
+  
+︶︶︶
+# FANDOMS !
+### death note
+### alnst
+### transformers
+### arcane
+### forsaken
+### dw
+### trese
+### junji ito manic
+### kakegurui
+### parasyte
+### sweet home
+### sweet tooth
+### resident evil
+### crk
+### mcsmp
+### vocaloid
+### and 60 more.
