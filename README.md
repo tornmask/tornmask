@@ -1,5 +1,5 @@
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
-
+0
 # WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 ︶✧︶
@@ -35,14 +35,14 @@
   
 ︶︶︶
 # FANDOMS !
-### death note
-### alnst
-### dungeon meshi
-### disastrous life os saiki k
-### yandere simulator
-### transformers
-### arcane
-### forsaken
+### death note ◞
+### alnst ◞
+### dungeon meshi ◞
+### disastrous life of saiki k ◞
+### yandere simulator ◞
+### transformers ◞
+### arcane ◞
+### forsaken ◞
 ### dw
 ### trese
 ### junji ito manic
@@ -55,3 +55,6 @@
 ### mcsmp
 ### vocaloid
 ### and 60 more.
+
+![image](e94d285b2f4bab9c761dcb191ec99508.jpg)
+# ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
