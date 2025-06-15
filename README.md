@@ -1,3 +1,5 @@
+![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
+
 ︶✧︶
 # HELLOOO!! people !! ◜
 ### call me: SHINJI, willow, shelby, or near, mello ( 5 ) ◞
