@@ -56,5 +56,6 @@
 ### vocaloid
 ### and 60 more.
 
-![image](e94d285b2f4bab9c761dcb191ec99508.jpg)
+![image](e94d285b2f4bab9c761dcb191ec99508.jpg)    feel free to interact! i'm pretty much a talker.. smtimes 
 # ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+![image](91a68e0a3a273d0725ded1e2fd7479f8.jpg)    i alsoo love near !! ( nate river ) ♡
