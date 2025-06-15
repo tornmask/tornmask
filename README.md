@@ -1,5 +1,7 @@
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
 
+# WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
+
 ︶✧︶
 # HELLOOO!! people !! ◜
 ### call me: SHINJI, willow, shelby, or near, mello ( 5 ) ◞
