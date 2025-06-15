@@ -34,6 +34,9 @@
 # FANDOMS !
 ### death note
 ### alnst
+### dungeon meshi
+### disastrous life os saiki k
+### yandere simulator
 ### transformers
 ### arcane
 ### forsaken
