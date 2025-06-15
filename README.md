@@ -1,5 +1,5 @@
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
-0
+
 # WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 ︶✧︶
@@ -59,3 +59,5 @@
 ![image](e94d285b2f4bab9c761dcb191ec99508.jpg)    feel free to interact! i'm pretty much a talker.. smtimes 
 # ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 ![image](91a68e0a3a273d0725ded1e2fd7479f8.jpg)    i alsoo love near !! ( nate river ) ♡
+# ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+![image](19e39784174d5618fb9a6e0a61ff27c4.jpg) LOVEE THESEEE GUYSS ( totallynot inlove with L . )
