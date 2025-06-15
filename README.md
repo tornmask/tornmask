@@ -11,6 +11,7 @@
 ### pedophiles,
 ### homophobics ( those who aren't harassers, you're safe. )
 ### guilt-trippers ( unless you feel bad about it. )
+### transphobic
 ### those who lie about their mental state or illness, 
 ### proshippers. 
 ︶︶︶︶︶︶
