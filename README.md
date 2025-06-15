@@ -61,3 +61,7 @@
 ![image](91a68e0a3a273d0725ded1e2fd7479f8.jpg)    i alsoo love near !! ( nate river ) ♡
 # ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 ![image](19e39784174d5618fb9a6e0a61ff27c4.jpg) LOVEE THESEEE GUYSS ( totallynot inlove with L . )
+# ︶︶︶
+# KINSSSS ! ◞◞
+## ︶︶︶︶︶︶︶︶
+![image](pw7qmv.jpg) starcream.
