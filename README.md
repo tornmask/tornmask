@@ -1,6 +1,6 @@
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^︵^&color=d5e3e1)
-![Custom Badge](https://img.shields.io/badge/transformers-freak-white?style=for-the-badge&logo=github)
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^v^&color=d5e3e1)
+![Custom Badge](https://img.shields.io/badge/𐂯—𐦯-mello.-white?style=for-the-badge&logo=github)
 
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
 
