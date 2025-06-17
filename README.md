@@ -11,7 +11,9 @@
 
 𐔌𐂯︵ 𐦯 —————— ✦ ◜◜
 # HELLOOO!! people !! ◜ 𐦯
-### call me: AZAR, shinji, willow, shelby, or near, mello ( 6 ) ◞ 𐦯
+### call me: MELLO, shinji, willow, shelby, or near, azar( 6 ) ◞ 𐦯
+
+
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 ## c+h people, watch out.. heh, 𐦯 
 ︶︶︶✧︶︶︶✧︶︶︶✧︶︶︶✧︶︶︶✧︶︶
