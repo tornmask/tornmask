@@ -16,6 +16,8 @@
 ## c+h people, watch out.. heh, 𐦯 
 ︶︶︶✧︶︶︶✧︶︶︶✧︶︶︶✧︶︶︶✧︶︶
 ### DNI !.𐂯 — 14:19
+
+![image](29d67a22d0ffcd7143b4f64959d568a2.jpg) 
 ︵︵︵︵︵︵
 ### 𐔌 pedophiles, 
 ### 𐔌 homophobics ( those who aren't harassers, you're safe. )
