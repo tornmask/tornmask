@@ -1,3 +1,4 @@
+https://camo.githubusercontent.com/<hash>/<hex-encoded-url>
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
 
 # WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
