@@ -1,7 +1,10 @@
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^︵^&color=d5e3e1)
+![Custom Badge](https://img.shields.io/badge/transformers-freak-white?style=for-the-badge&logo=github)
 
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
 
+![GitHub Streak](https://streak-stats.demolab.com/?user=kyostro&theme=tokyonight&hide_border=true)
 # WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 ︶✧︶
