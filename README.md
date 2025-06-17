@@ -4,6 +4,8 @@
 
 ![image](7ee620bf9510b641383d03558454a9dc.jpg)
 
+![Alt text](faef15d1f750a425da780e45226564c4.gif) 𐔌𐂯 — i can't STOP editing oml help me  𐦯✦
+
 ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 ︶✧︶
