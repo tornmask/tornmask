@@ -9,7 +9,7 @@
 
 ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
-︶✧︶
+𐔌𐂯︵ 𐦯 —————— ✦ ◜◜
 # HELLOOO!! people !! ◜ 𐦯
 ### call me: AZAR, shinji, willow, shelby, or near, mello ( 6 ) ◞ 𐦯
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
@@ -40,6 +40,9 @@
 ### Dazey and the Scouts◞◞
 ### and 99+ others !◞◞
   𐔌𐂯- (= > 𐦯 < =) !
+
+![image](0cd9ffc8f1264ead5936a938dc93c5ca.jpg)
+  
 ︶︶︶
 # FANDOMS !  𐦯- 𐂯
 ### death note ◞
