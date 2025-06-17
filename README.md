@@ -4,7 +4,6 @@
 
 ![image](7ee620bf9510b641383d03558454a9dc.jpg)
 
-![GitHub Streak](https://streak-stats.demolab.com/?user=kyostro&theme=nord&hide_border=true)
 ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 ︶✧︶
@@ -63,7 +62,12 @@
 
 ![image](e94d285b2f4bab9c761dcb191ec99508.jpg)    feel free to interact! i'm pretty much a talker.. smtimes 
 # ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
-![image](91a68e0a3a273d0725ded1e2fd7479f8.jpg)    i alsoo love near !! ( nate river ) ♡
+![image](91a68e0a3a273d0725ded1e2fd7479f8.jpg)    i alsoo love near !! ( nate river ) ♡ 
+
+
+![Alt text](3e74571bb11aa7c13a38076291436196.gif) ![Alt text](3e74571bb11aa7c13a38076291436196.gif) 𐔌𐂯◜◜ 𐦯◞◞
+
+
 # ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
 ![image](19e39784174d5618fb9a6e0a61ff27c4.jpg) LOVEE THESEEE GUYSS ( totallynot inlove with L . )
 # ︶︶︶
