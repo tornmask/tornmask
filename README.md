@@ -4,7 +4,7 @@
 
 ![image](5a2cc45217394999985655cb3dfbb4f7.jpg)
 
-![GitHub Streak](https://streak-stats.demolab.com/?user=kyostro&theme=tokyonight&hide_border=true)
+![GitHub Streak](https://streak-stats.demolab.com/?user=kyostro&theme=nord&hide_border=true)
 # WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 ︶✧︶
