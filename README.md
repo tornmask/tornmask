@@ -1,10 +1,11 @@
 
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^v^&color=d5e3e1)
 ![Custom Badge](https://img.shields.io/badge/𐂯—𐦯-mello.-white?style=for-the-badge&logo=github)
 
-![image](7ee620bf9510b641383d03558454a9dc.jpg)
+![image](7ee620bf9510b641383d03558454a9dc.jpg) ![Alt text](c34efca15526a243e8b6283cff791317.gif)
 
-![Alt text](faef15d1f750a425da780e45226564c4.gif) 𐔌𐂯 — i can't STOP editing oml help me  𐦯✦
+![Alt text](faef15d1f750a425da780e45226564c4.gif) ![Alt text](faef15d1f750a425da780e45226564c4.gif) 
 
 ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
@@ -12,7 +13,7 @@
 # HELLOOO!! people !! ◜ 𐦯
 ### call me: AZAR, shinji, willow, shelby, or near, mello ( 6 ) ◞ 𐦯
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
-## c+h people, watch out.. heh, 𐦯
+## c+h people, watch out.. heh, 𐦯 
 ︶︶︶✧︶︶︶✧︶︶︶✧︶︶︶✧︶︶︶✧︶︶
 ### DNI !.𐂯 — 14:19
 ︵︵︵︵︵︵
