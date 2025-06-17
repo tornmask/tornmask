@@ -13,6 +13,7 @@
 # HELLOOO!! people !! ◜ 𐦯
 ### call me: MELLO, shinji, willow, shelby, or near, azar( 6 ) ◞ 𐦯
 
+![image](Untitled544_20250617234606.png)
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
 ## c+h people, watch out.. heh, 𐦯 
