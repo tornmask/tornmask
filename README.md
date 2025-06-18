@@ -32,6 +32,8 @@
 ( basic DNI criteria )
 ︵︵︵︵︵︵
 ### ◜ i do art trades, animation requests ◞ 𐂯 𐦯
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/989/989321gyey13hzit.gif" width=500 height=25 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 ︵︵︵︵︵︵
 # INTERESTS ( music ) !
 ### the Florence + the machine◞◞
