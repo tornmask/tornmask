@@ -1,6 +1,8 @@
 <p align= center
   <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
+<p align=center
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^v^&color=d5e3e1)
 ![Custom Badge](https://img.shields.io/badge/𐂯—𐦯-mello.-white?style=for-the-badge&logo=github)
 
@@ -28,7 +30,11 @@
 
 <p align=center
   
-<a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/982/982524ya8e3mxenh.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a> <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1716/1716434rnwc1q59h9.png" width=100 height=100 border=0></a>
+<a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/982/982524ya8e3mxenh.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a> <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1716/1716434rnwc1q59h9.png" width=100 height=100 border=0></a> 
+
+<p align=center
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/523/523619kq839m3zgi.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a><a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/969/969132ff3t2b4u2x.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
 <p align=center
 
@@ -254,7 +260,7 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/386/386880u6gyn8xk26.gif" width=100 height=100 border=0></a>i alsoo love near !! ( nate river ) ♡ 
+<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/386/386880u6gyn8xk26.gif" width=100 height=100 border=0></a>
 
 <p align=center
 
@@ -262,26 +268,4 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/181/181954dvnve3v8yp.gif" width=69 height=99 border=0></a>
-
-<p align=center
-
-![Alt text](3e74571bb11aa7c13a38076291436196.gif) ![Alt text](3e74571bb11aa7c13a38076291436196.gif) 𐔌𐂯◜◜ 𐦯◞◞
-
-<p align=center
-
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
-
-<p align=center
-
-![image](19e39784174d5618fb9a6e0a61ff27c4.jpg) LOVEE THESEEE GUYSS ( totallynot inlove with L . )
-
-<p align=center
-
-# ︶︶︶
-# KIN/SSSS ! ◞◞
-## ︶︶︶︶︶︶︶︶ 𐂯
-
-<p align=center
-
-![image](pw7qmv.jpg) starcream.
+![Alt text](3e74571bb11aa7c13a38076291436196.gif) ![Alt text](3e74571bb11aa7c13a38076291436196.gif) 
