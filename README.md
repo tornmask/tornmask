@@ -5,7 +5,7 @@
 
 ![image](7ee620bf9510b641383d03558454a9dc.jpg) ![Alt text](c34efca15526a243e8b6283cff791317.gif)
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a><a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
   ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
