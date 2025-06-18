@@ -26,11 +26,12 @@
 
 <p align=center
   
-  # HELLOOO!! people !! ◜ 𐦯
+  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>HELLOOO!! people !! ◜ 𐦯<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
+  
 
 <p align=center
   
-  ### call me: MELLO, shinji, willow, shelby, or near, azar( 6 ) ◞ 𐦯
+  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>call me: MELLO, shinji, willow, shelby, or near, azar( 6 ) ◞ 𐦯<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
   
