@@ -1,3 +1,4 @@
+<p align= center
   <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^v^&color=d5e3e1)
@@ -7,7 +8,7 @@
 
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
-  ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
+ <p align= center ##  WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH >︵<
 
 𐔌𐂯︵ 𐦯 —————— ✦ ◜◜
 <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1558/1558444onuibmblkw.gif" width=57 height=10 border=0></a>
