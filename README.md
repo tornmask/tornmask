@@ -11,6 +11,10 @@
 ![image](7ee620bf9510b641383d03558454a9dc.jpg)
 
 <p align=center
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1010/1010710flw54kyeyn.gif" width=128 height=205 border=0></a>
+
+<p align=center
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
  <p align=center
