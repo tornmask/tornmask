@@ -15,6 +15,7 @@
 <a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1010/1010710flw54kyeyn.gif" width=128 height=205 border=0></a>
 
 <p align=center
+  
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
  <p align=center
@@ -22,17 +23,17 @@
      WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH 
 
 <p align=center
+  
 <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1558/1558444onuibmblkw.gif" width=57 height=10 border=0></a>
 
 <p align=center
   
-  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>HELLOOO!! people !! ◜ 𐦯<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
-  
+  <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>HELLOOO!! people !! ◜ 𐦯<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
   
-  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>call me: MELLO, shinji, willow, shelby, or near, azar( 6 ) ◞ 𐦯<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
-
+  <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>call me: MELLO, shinji, willow, shelby, or near, azar( 6 ) ◞ 𐦯<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
+  
 <p align=center
   
 <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/982/982524ya8e3mxenh.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a> <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1716/1716434rnwc1q59h9.png" width=100 height=100 border=0></a> 
@@ -43,11 +44,11 @@
 
 <p align=center
 
-︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
+<a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1105/1105194cn0jtifmaz.gif" width=240 height=36 border=0></a><br>
 
 <p align=center
 
-   ## c+h people, watch out.. heh, 𐦯 
+   <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>c+h people, watch out.. heh, 𐦯 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
    <p align=center
      
@@ -115,43 +116,43 @@
 
 <p align=center
    
-   ### the Florence + the machine◞◞
+   the Florence + the machine◞◞ <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
    
-   ### mindless Self Indulgence◞◞
+   mindless Self Indulgence◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
    
-### insane clown posse◞◞
+ insane clown posse◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
-### mazzy star◞◞
+ mazzy star◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
-### mitski◞◞
+mitski◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
+
+<p align=center
+  
+laufey◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
-### laufey◞◞
+GRLwood◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
-### GRLwood◞◞
+ penelope Scott◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
-### penelope Scott◞
+ dazey and the Scouts◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
-### dazey and the Scouts◞◞
-
-<p align=center
-
-### and 99+ others !◞◞
+and 99+ others !◞◞<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
@@ -169,83 +170,75 @@
 
 <p align=center
 
-### death note ◞
+death note ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### alnst ◞
+alnst ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### dungeon meshi ◞
+dungeon meshi ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### disastrous life of saiki k ◞
+ disastrous life of saiki k ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### yandere simulator ◞
+ yandere simulator ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### transformers ◞
+ transformers ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### arcane ◞
+ arcane ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### forsaken ◞
+forsaken ◞<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### dw
+ dw<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### trese
+ trese<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### junji ito manic
+ junji ito manic<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### kakegurui
+kakegurui<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### parasyte
+ parasyte<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### sweet home
+ sweet home<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### sweet tooth
+ sweet tooth<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### resident evil
+ mcsmp<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### crk
+ vocaloid<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
-### mcsmp
-
-<p align=center
-
-### vocaloid
-
-<p align=center
-
-### 𐔌 and 60 more.
+ 𐔌 and 60 more.<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
@@ -274,3 +267,9 @@
 <p align=center
 
 ![Alt text](3e74571bb11aa7c13a38076291436196.gif) ![Alt text](3e74571bb11aa7c13a38076291436196.gif) 
+
+<p align=center
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/661/661608dcexrcz0a8.gif" width=128 height=128 border=0></a>
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
