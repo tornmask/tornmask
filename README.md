@@ -20,7 +20,7 @@ BYI  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-grap
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl8.glitter-graphics.net/pub/229/229248abu3e9v4w9.gif" width=400 height=35 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
+![image](68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067.jpeg)
 
 <p align=center
 
