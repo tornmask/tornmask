@@ -16,7 +16,7 @@
 
 <p align=center
 
-BYI  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
+ <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-graphics.net/pub/1008/1008951xbh88shb03.gif" width=23 height=23 border=0></a>
 
 <p align=center
 
@@ -28,7 +28,7 @@ BYI  <a href="https://www.glitter-graphics.com"><img src="http://dl.glitter-grap
 
 <p align=center
 
-<img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a> 𐂯 ◞ hello, you can call me : MELLO, willow, shelby, shinji, near, or azar ( 6 )  𐦯.𓏵 <img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
+<img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a> 𐂯 ◞ ✦ *︵ :: MELLO, willow, shelby, shinji, near, or azar ( 6 )  𐦯.𓏵 <img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
