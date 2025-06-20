@@ -20,11 +20,15 @@
 
  <p align=center
    
-     WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH 
+  <a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/3121/3121060okxx2c8per.gif" width=100 height=100 border=0></a>WHERE ARE THE DEATHNOTE PEOPLE IN PONY TOWNNN ARGHHH<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/3121/3121060okxx2c8per.gif" width=100 height=100 border=0></a>
 
 <p align=center
   
 <a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1558/1558444onuibmblkw.gif" width=57 height=10 border=0></a>
+
+<p align=center
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl3.glitter-graphics.net/pub/45/45583ymrwb5grfo.gif" width=160 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
 <p align=center
   
