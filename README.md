@@ -36,6 +36,6 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/982/982524ya8e3mxenh.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a><a href="https://www.glitter-graphics.com"><img src="http://dl4.glitter-graphics.net/pub/1716/1716434rnwc1q59h9.png" width=100 height=100 border=0></a>  
+![Alt text](blinkiesCafe-Ea.gif)
 <a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/523/523619kq839m3zgi.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/969/969132ff3t2b4u2x.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
