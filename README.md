@@ -41,3 +41,7 @@
 <p align=center
 
 [![Spotify](https://img.shields.io/badge/Spotify-Listen%20Now-green?logo=spotify)](https://open.spotify.com/user/314mut7imtpm6vc6oq3g32g722qy)
+
+<p align=center
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
