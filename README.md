@@ -1,5 +1,9 @@
 <p align=center
 
+![image](68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067.jpeg)
+
+<p align=center
+
 ![image](77cd09ec08ac488163c61e1857680498.jpg)
 
 <p align=center
@@ -47,3 +51,6 @@
 
 [![Spotify](https://img.shields.io/badge/Spotify-Listen%20Now-green?logo=spotify)](https://open.spotify.com/user/314mut7imtpm6vc6oq3g32g722qy)
 
+<p align=center
+
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
