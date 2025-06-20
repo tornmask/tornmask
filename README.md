@@ -32,7 +32,7 @@
 
 <p align=center
 
-<img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a> 𐂯 ◞ ✦ *︵ :: MELLO, willow, shelby, shinji, near, or azar ( 6 )  𐦯.𓏵 <img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
+<img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a> 𐂯 ◞ ✦ *︵ :: 𝑀𝐸𝐿𝐿𝑂,   𝑾𝒊𝒍𝒍𝒐𝒘,   𝑺𝒉𝒆𝒍𝒃𝒚,   𝑺𝒉𝒊𝒏𝒋𝒊,   𝑁𝑒𝒶𝓇,  𝒜𝓏𝒶𝓇 . ( 6 )  𐦯.𓏵 <img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
 
 <p align=center
 
