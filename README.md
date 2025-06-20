@@ -16,6 +16,11 @@
 
 <p align=center
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
+
+
+<p align=center
+
     𐂯◞ WHERE ARE THE DEATH NOTE PEOPLE IN PONY TOWN ARGHH ◞ 𐦯
 
 <p align=center
@@ -42,6 +47,3 @@
 
 [![Spotify](https://img.shields.io/badge/Spotify-Listen%20Now-green?logo=spotify)](https://open.spotify.com/user/314mut7imtpm6vc6oq3g32g722qy)
 
-<p align=center
-
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
