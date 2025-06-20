@@ -37,3 +37,7 @@
 <p align=center
 
 𐂯◜⠀ ⠀..⠀⠀⠀⠀𐔌 feel free to int w me on pt. ◞ 𐦯⠀ ⠀⠀⠀⠀⠀ 𓏵. 
+
+<p align=center
+
+[![Spotify](https://img.shields.io/badge/Spotify-Listen%20Now-green?logo=spotify)](https://open.spotify.com/user/314mut7imtpm6vc6oq3g32g722qy)
