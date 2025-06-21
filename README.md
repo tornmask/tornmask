@@ -53,4 +53,8 @@
 
 <p align=center
 
+***" i find our bond completely __irresistible__, and __compassionate__, and that's.. what i need, from you."***
+
+<p align=center
+
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
