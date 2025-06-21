@@ -57,4 +57,8 @@
 
 <p align=center
 
+![image](68747470733a2f2f66696c65732e636174626f782e6d6f652f66707065676e2e706e67.png)
+
+<p align=center
+
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
