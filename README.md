@@ -53,7 +53,7 @@
 
 <p align=center
 
-***" i find our bond completely __irresistible__, and __compassionate__, and that's.. what i need, from you."***
+### `i find our bond completely irresistible, and compassionate, and that's.. what i need, from you.`
 
 <p align=center
 
