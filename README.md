@@ -36,7 +36,7 @@
 
 <p align=center
 
-<img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a> 𐂯 ◞ ✦ *︵ :: 𝑀𝐸𝐿𝐿𝑂,   𝑾𝒊𝒍𝒍𝒐𝒘,   𝑺𝒉𝒆𝒍𝒃𝒚,   𝑺𝒉𝒊𝒏𝒋𝒊,   𝑁𝑒𝒶𝓇,  𝒜𝓏𝒶𝓇 . ( 6 )  𐦯.𓏵 <img src="http://dl7.glitter-graphics.net/pub/706/706287isbesoi4u7.gif" width=55 height=27 border=0></a>
+![Alt text](245.gif) 𐂯 ◞ ✦ *︵ :: 𝑀𝐸𝐿𝐿𝑂,   𝑾𝒊𝒍𝒍𝒐𝒘,   𝑺𝒉𝒆𝒍𝒃𝒚,   𝑺𝒉𝒊𝒏𝒋𝒊,   𝑁𝑒𝒶𝓇,  𝒜𝓏𝒶𝓇 . ( 6 )  𐦯.𓏵 ![Alt text](245.gif)
 
 <p align=center
 
@@ -54,10 +54,10 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
+![Alt text](div50.png)![Alt text](div50.png)![Alt text](div50.png)
 
 <p align=center
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=2000&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=and+i+don't+blame+you;if+you+want+to%E2%80%94;BURY+ME+IN+YOUR+MEMORY%2C;i'm+not+the+girl+i+ought+to+be%2C+but;Maybe+when+you;tell+your+friends+you%E2%80%94;You+can+tell+them+what+you+saw+in+me.;And+not+the+way+I+am." alt="Typing SVG" /></a>
 
-![image](Untitled545_20250622223425.png)
+
