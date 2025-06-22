@@ -36,7 +36,7 @@
 
 <p align=center
 
-![Alt text](245.gif) 𐂯 ◞ ✦ *︵ :: 𝑀𝐸𝐿𝐿𝑂,   𝑾𝒊𝒍𝒍𝒐𝒘,   𝑺𝒉𝒆𝒍𝒃𝒚,   𝑺𝒉𝒊𝒏𝒋𝒊,   𝑁𝑒𝒶𝓇,  𝒜𝓏𝒶𝓇 . ( 6 )  𐦯.𓏵 ![Alt text](245.gif)
+![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **mello,   willow,   shelby,   shinji,   near,  azar** . ( 6 )  𐦯. ![Alt text](245.gif)
 
 <p align=center
 
@@ -49,10 +49,6 @@
 
 <p align=center
 
-![image](68747470733a2f2f66696c65732e636174626f782e6d6f652f66707065676e2e706e67.png)
-
-<p align=center
-
 ![Alt text](div50.png)![Alt text](div50.png)![Alt text](div50.png)
 
 <p align=center
@@ -60,3 +56,4 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=2000&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=and+i+don't+blame+you;if+you+want+to%E2%80%94;BURY+ME+IN+YOUR+MEMORY%2C;i'm+not+the+girl+i+ought+to+be%2C+but;Maybe+when+you;tell+your+friends+you%E2%80%94;You+can+tell+them+what+you+saw+in+me.;And+not+the+way+I+am." alt="Typing SVG" /></a>
 
 
+![Alt text](div56.gif)
