@@ -1,6 +1,6 @@
 <p align=center
 
-![image](68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067.jpeg)
+![image](div47.png)![image](div47.png)![image](div47.png)
 
 <p align=center
 
@@ -12,7 +12,7 @@
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=^v^&color=ffffff)
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=Σ(°△°|||)&color=ffffff)
 ![Custom Badge](https://img.shields.io/badge/◜𐂯.𐦯-𓂐mello.𐦯-white?style=for-the-badge&logo=github)
 <p align=center
 
