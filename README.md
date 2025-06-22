@@ -40,9 +40,7 @@
 
 <p align=center
 
-![Alt text](tumblr_34ec925de8b659e4baecb53bb6476e4d_1d256b58_250.gif)
 ![Alt text](blinkiesCafe-Nx.gif)
-![Alt text](blinkiesCafe-Ea.gif)
 <a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/523/523619kq839m3zgi.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <a href="https://www.glitter-graphics.com"><img src="http://dl2.glitter-graphics.net/pub/969/969132ff3t2b4u2x.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
@@ -61,3 +59,5 @@
 <p align=center
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=2000&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=and+i+don't+blame+you;if+you+want+to%E2%80%94;BURY+ME+IN+YOUR+MEMORY%2C;i'm+not+the+girl+i+ought+to+be%2C+but;Maybe+when+you;tell+your+friends+you%E2%80%94;You+can+tell+them+what+you+saw+in+me.;And+not+the+way+I+am." alt="Typing SVG" /></a>
+
+![image](Untitled545_20250622223425.png)
