@@ -24,7 +24,7 @@
 
 <p align=center
 
-    𐂯◞ WHERE ARE THE DEATH NOTE PEOPLE IN PONY TOWN ARGHH ◞ 𐦯
+    𐂯◞ i have found my people ( 150 frnds ) ◞ 𐦯
 
 <p align=center
 
@@ -32,7 +32,11 @@
 
 <p align=center
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=20&pause=1&color=888888&center=true&vCenter=true&width=435&lines=feel+free+to+int+on+pt+(*+%5E+%CF%89+%5E)+" alt="Typing SVG" /></a>
+![Alt text](284.gif)<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&size=20&pause=1&color=888888&center=true&vCenter=true&width=435&lines=feel+free+to+int+on+pt+(*+%5E+%CF%89+%5E)+" alt="Typing SVG" /></a>![Alt text](284.gif)
+
+<p align=center
+
+![Alt text](div37.png)
 
 <p align=center
 
@@ -41,7 +45,6 @@
 <p align=center
 
 ![Alt text](blinkiesCafe-Nx.gif)
-<a href="https://www.glitter-graphics.com"><img src="http://dl9.glitter-graphics.net/pub/523/523619kq839m3zgi.gif" width=150 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 
 <p align=center
 
