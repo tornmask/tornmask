@@ -56,7 +56,6 @@
 
 <p align=center
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=2000&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=and+i+don't+blame+you;if+you+want+to%E2%80%94;BURY+ME+IN+YOUR+MEMORY%2C;i'm+not+the+girl+i+ought+to+be%2C+but;Maybe+when+you;tell+your+friends+you%E2%80%94;Can+tell+them+what+you+saw+in+me.;And+not+how+I+turned+out+to+be." alt="Typing SVG" /></a>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=2000&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=I'll+break;Your+bones;with+all+the+love+i+carry.;keep+you+close;and+one+day%2C+;we'll+get+married." alt="Typing SVG" /></a>
 
 ![Alt text](div56.gif)
