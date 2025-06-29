@@ -12,7 +12,7 @@
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=Σ(°△°|||)&color=ffffff)
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=((╬◣﹏◢))&color=ffffff)
 ![Custom Badge](https://img.shields.io/badge/◜𐂯.𐦯-𓂐marcille.𐦯-white?style=for-the-badge&logo=github)
 <p align=center
 
