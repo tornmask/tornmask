@@ -4,7 +4,7 @@
 
 <p align=center
 
-![image](77cd09ec08ac488163c61e1857680498.jpg)
+![image](8885fbeb46a628857238c7be6a6abd31.jpg)
 
 <p align=center
 
@@ -24,7 +24,7 @@
 
 <p align=center
 
-    𐂯◞ i have found my people ( 150 frnds ) ◞ 𐦯
+    𐂯◞ my god, my universe. ( 150 friends ) ◞ 𐦯
 
 <p align=center
 
