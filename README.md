@@ -48,7 +48,7 @@
 
 <p align=center
 
-# o(>ω<)o
+# ┐(￣ヮ￣)┌
 
 <p align=center
 
