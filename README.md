@@ -13,10 +13,10 @@
 <p align=center
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=Σ(°△°|||)&color=ffffff)
-![Custom Badge](https://img.shields.io/badge/◜𐂯.𐦯-𓂐mello.𐦯-white?style=for-the-badge&logo=github)
+![Custom Badge](https://img.shields.io/badge/◜𐂯.𐦯-𓂐marcille.𐦯-white?style=for-the-badge&logo=github)
 <p align=center
 
-![Alt text](e649a0021c82f43dc90e29013a4f0629.jpg)
+![Alt text](2961a14af0eab019ea46de840edc614e.jpg)
 
 <p align=center
 
@@ -40,7 +40,7 @@
 
 <p align=center
 
-![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **mello,   willow,   shelby,   shinji,   near,  azar** . ( 6 )  𐦯. ![Alt text](245.gif)
+![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 10 )  𐦯. ![Alt text](245.gif)
 
 <p align=center
 
