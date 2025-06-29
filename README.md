@@ -56,7 +56,6 @@
 
 <p align=center
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=2000&pause=1&color=F7F7F7&center=true&vCenter=true&width=435&lines=I'll+break;Your+bones;with+all+the+love+i+carry.;keep+you+close;and+one+day%2C+;we'll+get+married." alt="Typing SVG" /></a>
-
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=7;minutes;IN+HEAVEN;Is+all+that+I+need;when+I+get+with+him;7;minutes;IN+HEAVEN;I+hope+in+the+end+that+I'm+not+a+virgin" alt="Typing SVG" /></a>
 ![Alt text](div56.gif)
 
