@@ -24,7 +24,7 @@
 
 <p align=center
 
-    𐂯◞ my god, my universe. ( 150 friends ) ◞ 𐦯
+    𐂯◞ "I’ve studied magic for centuries, and yet I still can’t protect the people I care about."⠀ ⠀⠀⠀ ◞ 𐦯
 
 <p align=center
 
