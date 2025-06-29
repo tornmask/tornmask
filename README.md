@@ -1,6 +1,6 @@
 <p align=center
 
-![image](div47.png)![image](div47.png)![image](div47.png)
+![Alt text](div90.gif)![Alt text](div90.gif)
 
 <p align=center
 
@@ -28,7 +28,7 @@
 
 <p align=center
 
-![image](68747470733a2f2f66696c65732e636174626f782e6d6f652f6d31783935382e6a7067.jpeg)
+![Alt text](div117.gif)
 
 <p align=center
 
@@ -36,7 +36,7 @@
 
 <p align=center
 
-![Alt text](div37.png)
+![Alt text](div90.gif)
 
 <p align=center
 
