@@ -40,7 +40,7 @@
 
 <p align=center
 
-![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 10 )  𐦯. ![Alt text](245.gif)
+![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **shutu, hercy, herthania, marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 13 )  𐦯. ![Alt text](245.gif)
 
 <p align=center
 
