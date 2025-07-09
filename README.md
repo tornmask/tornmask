@@ -8,8 +8,7 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/439/439857hze1vgnqaz.gif" width=371 height=52 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
-
+<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <p align=center
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=((╬◣﹏◢))&color=ffffff)
