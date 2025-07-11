@@ -1,9 +1,5 @@
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl10.glitter-graphics.net/pub/1898/1898920aqclqqb34i.gif" width=329 height=44 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
-
-<p align=center
-
 ![Alt text](div90.gif)![Alt text](div90.gif)
 
 <p align=center
