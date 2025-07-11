@@ -71,6 +71,7 @@
 
 <p align=center
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Ubuntu&duration=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=7;minutes;IN+HEAVEN;Is+all+that+I+need;when+I+get+with+him;7;minutes;IN+HEAVEN;I+hope+in+the+end+that+I'm+not+a+virgin" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Libertinus+Mono&duration=2000&color=FFFFFF&center=true&vCenter=true&width=435&lines=But+don't+wear+that;That's+too+much+black;it+makes+you+fat.;I+HATE+MY+MOM;I+HATE+MY+MOMM;I+HATE+MY+MOMMM;I+HATE+MY+MOOOOMMMMMMMMM!!;ii+hatee+mmyy+MOMMMM%3F%3F!!!%3F!...%2C%2C;I+HATE+MY+MOTHERRRfUckingg+mOooMM..." alt="Typing SVG" /></a>
+
 ![Alt text](div56.gif)
 
