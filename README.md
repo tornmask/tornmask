@@ -15,19 +15,19 @@
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=((╬◣﹏◢))&color=ffffff)
-![Custom Badge](https://img.shields.io/badge/◜𐂯.𐦯-𓂐marcille.𐦯-white?style=for-the-badge&logo=github)
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff)
+![Custom Badge](https://img.shields.io/badge/-✧𐔌kono𐦯-white?style=for-the-badge&logo=github)
 <p align=center
 
-![Alt text](2961a14af0eab019ea46de840edc614e.jpg)
+![Alt text](09174f534466f541eeaa402e3b67f2ec.jpg)
 
 <p align=center
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
 
 <p align=center
-
-    𐂯◞ "I’ve studied magic for centuries, and yet I still can’t protect the people I care about."⠀ ⠀⠀⠀ ◞ 𐦯
+    
+    "Yuki is... everything I'm not."
 
 <p align=center
 
@@ -43,7 +43,23 @@
 
 <p align=center
 
-![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **shutu, hercy, herthania, marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 13 )  𐦯. ![Alt text](245.gif)
+![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **kono, shutu, hercy, herthania, marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 14 )  𐦯. ![Alt text](245.gif)
+
+<p align=center
+
+✦
+
+<p align=center
+
+***they / them*** ! 
+
+<p align=center
+
+**an aspiring artist, writer.** 
+
+<p align=center
+
+✦
 
 <p align=center
 
