@@ -49,7 +49,7 @@
 
 <p align=center
 
-![Alt text](339.gif) [rentry](https://rentry.co/un7dogg7) ,  [twitter](https://twitter.com/fabulousbomber) ![Alt text](Id47pJv.gif) ![Alt text](7MrzBr7.gif)
+![Alt text](339.gif) [rentry](https://rentry.co/un7dogg7) ,  [twitter](https://twitter.com/fabulousbomber)  , [patreon](https://patreon.com/fabulousbomber) ![Alt text](Id47pJv.gif)![Alt text](7MrzBr7.gif)
 
 <p align=center
 
