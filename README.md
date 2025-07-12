@@ -4,10 +4,10 @@
 
 <p align=center
 
-<a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
+![Alt text](div117.gif)
+
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff) 
 ![Custom Badge](https://img.shields.io/badge/-✧𐔌sua𐦯-white?style=for-the-badge&logo=github)
 
 <p align=center
@@ -36,19 +36,11 @@
 
 <p align=center
 
-![Alt text](245.gif) **kono, shutu, hercy, herthania, marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 14 )  𐦯. ![Alt text](245.gif)
+![Alt text](284.gif) **call me, kono / willow❞.** ![Alt text](284.gif)
 
 <p align=center
 
 ✦
-
-<p align=center
-
-***they / them*** ! 
-
-<p align=center
-
-**an aspiring artist, writer.** 
 
 <p align=center
 
@@ -60,7 +52,7 @@
 
 <p align=center
 
-# ┐(￣ヮ￣)┌
+**＼(≧▽≦)／**
 
 <p align=center
 
@@ -68,7 +60,4 @@
 
 <p align=center
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Libertinus+Mono&duration=2000&color=FFFFFF&center=true&vCenter=true&width=435&lines=But+don't+wear+that;That's+too+much+black;it+makes+you+fat.;I+HATE+MY+MOM;I+HATE+MY+MOMM;I+HATE+MY+MOMMM;I+HATE+MY+MOOOOMMMMMMMMM!!;ii+hatee+mmyy+MOMMMM%3F%3F!!!%3F!...%2C%2C;I+HATE+MY+MOTHERRRfUckingg+mOooMM..." alt="Typing SVG" /></a>
-
-![Alt text](div56.gif)
-
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff) 
