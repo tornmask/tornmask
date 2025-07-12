@@ -1,9 +1,5 @@
 <p align=center
 
-![Alt text](div90.gif)![Alt text](div90.gif)
-
-<p align=center
-
 ![image](Untitled551_20250712145919.png)
 
 <p align=center
@@ -11,11 +7,12 @@
 <a href="https://www.glitter-graphics.com"><img src="http://dl7.glitter-graphics.net/pub/619/619387iptszvvay0.gif" width=531 height=20 border=0></a><br><a href="https://www.glitter-graphics.com" target=_blank></a>
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff)
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff) 
 ![Custom Badge](https://img.shields.io/badge/-✧𐔌sua𐦯-white?style=for-the-badge&logo=github)
+
 <p align=center
 
-![Alt text](27b0f212d8d84655dde53077e818d63e.jpg)
+![Alt text](e2314ae170c34da2faf5f2f241930219.jpg)
 
 <p align=center
 
@@ -39,7 +36,7 @@
 
 <p align=center
 
-![Alt text](245.gif) 𐂯 ◞ ✦ ︵ :: **kono, shutu, hercy, herthania, marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 14 )  𐦯. ![Alt text](245.gif)
+![Alt text](245.gif) **kono, shutu, hercy, herthania, marcille, shoyou, haria, haren, mello,   willow,   shelby,   shinji,   near,  azar** . ( 14 )  𐦯. ![Alt text](245.gif)
 
 <p align=center
 
