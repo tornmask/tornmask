@@ -4,7 +4,7 @@
 
 <p align=center
 
-![image](8885fbeb46a628857238c7be6a6abd31.jpg)
+![image](Untitled551_20250712145919.png)
 
 <p align=center
 
@@ -12,10 +12,10 @@
 <p align=center
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff)
-![Custom Badge](https://img.shields.io/badge/-✧𐔌kono𐦯-white?style=for-the-badge&logo=github)
+![Custom Badge](https://img.shields.io/badge/-✧𐔌sua𐦯-white?style=for-the-badge&logo=github)
 <p align=center
 
-![Alt text](09174f534466f541eeaa402e3b67f2ec.jpg)
+![Alt text](27b0f212d8d84655dde53077e818d63e.jpg)
 
 <p align=center
 
@@ -23,7 +23,7 @@
 
 <p align=center
     
-    "Yuki is... everything I'm not."
+    "oh my, clematis."
 
 <p align=center
 
