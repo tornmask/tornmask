@@ -53,4 +53,4 @@
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff) 
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=/ᐠ.,.ᐟ\&color=ffffff) 
