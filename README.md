@@ -24,7 +24,7 @@
 
 <p align=center
     
-    "oh my, clematis."
+"oh my, clematis." ![Alt text](Id47pJv.gif)
 
 <p align=center
 
