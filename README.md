@@ -49,4 +49,8 @@
 
 <p align=center
 
+[rentry](https://rentry.co/un7dogg7) ,  [twitter](https://twitter.com/fabulousbomber)
+
+<p align=center
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=(＾▽＾)&color=ffffff) 
