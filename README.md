@@ -38,17 +38,6 @@
 
 ![Alt text](284.gif) **call me, kono / willow❞.** ![Alt text](284.gif)
 
-<p align=center
-
-✦
-
-<p align=center
-
-✦
-
-<p align=center
-
-![Alt text](42.webp)
 
 <p align=center
 
