@@ -20,7 +20,7 @@
 
 <p align=center
     
-"oh my, clematis." ![Alt text](Id47pJv.gif)
+"oh my, clematis." ![Alt text](OX6LFeG.gif)
 
 <p align=center
 
@@ -49,8 +49,12 @@
 
 <p align=center
 
-![Alt text](339.gif) [rentry](https://rentry.co/un7dogg7) ,  [twitter](https://twitter.com/fabulousbomber)  , [patreon](https://patreon.com/fabulousbomber) ![Alt text](Id47pJv.gif)![Alt text](7MrzBr7.gif)
+![Alt text](v4fcrIx.gif)[rentry](https://rentry.co/un7dogg7) ,  [twitter](https://twitter.com/fabulousbomber)  , [patreon](https://patreon.com/fabulousbomber)![Alt text](GZWu3gj.gif)
 
 <p align=center
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=/ᐠ.,.ᐟ\&color=ffffff) 
+
+<p align=center
+
+❞  *you are brave, and that.. is all that you can afford for yourself.* ❞
