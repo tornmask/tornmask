@@ -53,7 +53,7 @@
 
 <p align=center
 
-![Alt text](v4fcrIx.gif)[rentry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prns](https://pronouns.cc/@kinomiyyoo)![Alt text](GZWu3gj.gif)
+![Alt text](v4fcrIx.gif)[rentry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prns](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif)
 
 <p align=center
 
