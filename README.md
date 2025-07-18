@@ -1,6 +1,6 @@
 <p align=center
 
-![Alt text](2ec16e69d1fc0b1048eb7401c7021c97.jpg)
+![Alt text](____divider___୨୧-removebg-preview.png)
 
 <p align=center
 
@@ -53,7 +53,7 @@
 
 <p align=center
 
-![Alt text](v4fcrIx.gif)[rentry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prns](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif)
+![Alt text](v4fcrIx.gif)[rentry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prns](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif), ![Alt text](v4fcrIx.gif)[strwpage](https://konomisses.straw.page/)![Alt text](GZWu3gj.gif)
 
 <p align=center
 
