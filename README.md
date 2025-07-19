@@ -36,7 +36,7 @@
 
 <p align=center
 
-![Alt text](284.gif) **call me, kono / willow❞.** ![Alt text](284.gif)
+**call me, kono / willow❞.** ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
 
 <p align=center
 
@@ -44,7 +44,7 @@
 
 <p align=center
 
-![Alt text](v4fcrIx.gif)[rentry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prns](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif), ![Alt text](v4fcrIx.gif)[strwpage](https://konomisses.straw.page/)![Alt text](GZWu3gj.gif)
+![Alt text](v4fcrIx.gif)[rntry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prnspg](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif), ![Alt text](v4fcrIx.gif)[strwpg](https://konomisses.straw.page/)![Alt text](GZWu3gj.gif)
 
 <p align=center
 
