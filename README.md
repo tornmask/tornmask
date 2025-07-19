@@ -1,6 +1,6 @@
 <p align=center
 
-![Alt text](____divider___୨୧-removebg-preview.png)
+![Alt text](_-removebg-preview.png)
 
 <p align=center
 
