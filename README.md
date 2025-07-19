@@ -42,11 +42,6 @@
 
 ![Alt text](284.gif) **call me, kono / willow❞.** ![Alt text](284.gif)
 
-
-<p align=center
-
-**＼(≧▽≦)／**
-
 <p align=center
 
 ![Alt text](div50.png)![Alt text](div50.png)![Alt text](div50.png)
@@ -59,6 +54,3 @@
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=/ᐠ.,.ᐟ\&color=ffffff) 
 
-<p align=center
-
-❞  *you are brave, and that.. is all that you can afford for yourself.* ❞
