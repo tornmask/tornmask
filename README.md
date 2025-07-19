@@ -36,15 +36,11 @@
 
 <p align=center
 
-![Alt text](div90.gif)![Alt text](div90.gif)
-
-<p align=center
-
 ![Alt text](284.gif) **call me, kono / willow❞.** ![Alt text](284.gif)
 
 <p align=center
 
-![Alt text](div50.png)![Alt text](div50.png)![Alt text](div50.png)
+![Alt text](div50.png)
 
 <p align=center
 
