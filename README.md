@@ -44,7 +44,7 @@
 
 <p align=center
 
-![Alt text](v4fcrIx.gif)[rntry](https://rentry.co/un7dogg7)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prnspg](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif), ![Alt text](v4fcrIx.gif)[strwpg](https://konomisses.straw.page/)![Alt text](GZWu3gj.gif)
+![Alt text](v4fcrIx.gif)[rntry](https://rentry.co/konomiyyo)![Alt text](GZWu3gj.gif)  , ![Alt text](v4fcrIx.gif)[prnspg](https://pronouns.cc/@konomiyyoo)![Alt text](GZWu3gj.gif), ![Alt text](v4fcrIx.gif)[strwpg](https://konomisses.straw.page/)![Alt text](GZWu3gj.gif)
 
 
 
