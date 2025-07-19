@@ -16,7 +16,7 @@
 
 <p align=center
 
-![Alt text](e2314ae170c34da2faf5f2f241930219.jpg)
+![Alt text](medium_widgets_and_wallpaper_4_40_5-removebg-preview.png)
 
 <p align=center
 
