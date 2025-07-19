@@ -4,7 +4,7 @@
 
 <p align=center
 
-![image](Untitled551_20250712145919.png)
+![image](sua_chibi__________paecroj_on_tiktok-removebg-preview.png)
 
 <p align=center
 
