@@ -12,10 +12,6 @@
 
 <p align=center
 
-![Custom Badge](https://img.shields.io/badge/-✧𐔌sua𐦯-white?style=for-the-badge&logo=github)
-
-<p align=center
-
 ![Alt text](medium_widgets_and_wallpaper_4_40_5-removebg-preview.png)
 
 <p align=center
