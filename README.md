@@ -12,7 +12,11 @@
 
 <p align=center
 
-![Alt text](medium_widgets_and_wallpaper_4_40_5-removebg-preview.png)
+![Alt text](Sua-removebg-preview.png)
+
+<p align=center
+
+![Alt text](div117.gif)
 
 <p align=center
 
