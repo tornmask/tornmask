@@ -1,6 +1,6 @@
 <p align=center
 
-![Alt text](_-removebg-preview.png)
+![Alt text](349f7b4f-0959-42b3-bf84-d847cbd18913-removebg-preview.png)
 
 <p align=center
 
