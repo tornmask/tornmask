@@ -55,6 +55,10 @@
 <p align=center
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&pause=1000&color=CCF7F6&center=true&vCenter=true&width=435&lines=i+love+sua+%5E_%5E" alt="Typing SVG" /></a>
+
+<p align=center
+
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rock+Salt&size=30&duration=1000&pause=1000&color=212C30FF&center=true&vCenter=true&width=435&lines=FATHER;FATHER;FATHER;FATHERRR;father%2C+into+your+hands;i+commend+my+spirit.;father%2C+into+your+hands;WHY+have+you+forsaken+ME%3F;In+your+eyes%2C;FORSAKEN+ME.;In+your+thoughts%2C;FORSAKEN+ME.;In+your+hearts%2C;FOOORRSAKEEENN..+ME.+;OHHHHH" alt="Typing SVG" /></a>
     
 <p align=center
 
