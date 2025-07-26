@@ -4,7 +4,7 @@
 
 <p align=center
 
-![image](Sua_transparent_figurine-removebg-preview.png)
+![image](Untitled3_20250726215602.png)
 
 <p align=center
 
