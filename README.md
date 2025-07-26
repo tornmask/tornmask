@@ -58,8 +58,7 @@
 
 <p align=center
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Rock+Salt&size=30&duration=1000&pause=1000&color=212C30FF&center=true&vCenter=true&width=435&lines=FATHER;FATHER;FATHER;FATHERRR;father%2C+into+your+hands;i+commend+my+spirit.;father%2C+into+your+hands;WHY+have+you+forsaken+ME%3F;In+your+eyes%2C;FORSAKEN+ME.;In+your+thoughts%2C;FORSAKEN+ME.;In+your+hearts%2C;FOOORRSAKEEENN..+ME.+;OHHHHH" alt="Typing SVG" /></a>
-    
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&duration=1000&pause=1&color=930000&center=true&vCenter=true&width=435&lines=all+the+lovers;all+the+haters;and+all+the+people;that+call+themselves+players;HOT+MAMAS;PIMP+DADDIES;and+the+people+;rollin'+up+in+caddies;hey%2C+rockers;HIP-HOPPERS;and+everybody;all+around+the+world" alt="Typing SVG" /></a>
 <p align=center
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=/ᐠ.,.ᐟ\&color=ffffff) 
