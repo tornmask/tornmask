@@ -1,5 +1,6 @@
+<p align=center
 
-![Alt text](3dgifmaker80184.gif)  <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&pause=1000&color=CCF7F6&center=true&vCenter=true&width=435&lines=hello!+welcome+^_^+%5E_%5E" alt="Typing SVG" /></a>
+![Alt text](3dgifmaker80184.gif)  
 
 <p align=center
 
