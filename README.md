@@ -47,6 +47,11 @@
 <p align=center
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&duration=1000&pause=1&color=930000&center=true&vCenter=true&width=435&lines=all+the+lovers;all+the+haters;and+all+the+people;that+call+themselves+players;HOT+MAMAS;PIMP+DADDIES;and+the+people+;rollin'+up+in+caddies;hey%2C+rockers;HIP-HOPPERS;and+everybody;all+around+the+world" alt="Typing SVG" /></a>
+
+<p align=center
+
+![Alt text](IMG_3808.gif)
+
 <p align=center
 
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=/ᐠ.,.ᐟ\&color=ffffff) 
