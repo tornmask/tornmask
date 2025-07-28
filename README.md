@@ -4,11 +4,11 @@
 
 <p align=center
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
+![Alt text](div117.gif)
 
 <p align=center
 
-![Alt text](div117.gif)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
 
 <p align=center
 
