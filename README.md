@@ -4,7 +4,7 @@
 
 <p align=center
 
-![Alt text](blinkiesCafe-Ku.gif)
+![Alt text](Untitled10_20250730060701.jpg)
 
 <p align=center
 
