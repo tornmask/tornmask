@@ -32,8 +32,6 @@
 
 ![Alt text](v4fcrIx.gif)[rntry](https://rentry.co/konomiyyo)    ,         [prnspg](https://pronouns.cc/@konomiyyoo)  ,   [strwpg](https://konomisses.straw.page/)   ,   [atabook](https://konomiyyoo.atabook.org/)![Alt text](GZWu3gj.gif)
 
-
-
 <p align=center
 
 ![Alt text](div117.gif)
