@@ -10,9 +10,7 @@
 
 ![Alt text](3dgifmaker80184.gif)  
 
-<p align=center
-
-![Alt text](div117.gif)
+<hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
 <p align=center
 
