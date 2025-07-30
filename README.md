@@ -4,6 +4,10 @@
 
 <p align=center
 
+feel ABSOLUTELY free to follow me !
+
+<p align=center
+
 ![Alt text](Untitled10_20250730060701.jpg)
 
 <p align=center
