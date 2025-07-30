@@ -24,6 +24,9 @@ feel ABSOLUTELY free to follow me !
 
 ![Alt text](284.gif)<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&pause=1000&color=CCF7F6&center=true&vCenter=true&width=435&lines=feel+free+to+interact+with+me!;unless+if+i+have+DNI." alt="Typing SVG" /></a>![Alt text](284.gif)
 
+hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
+
+
 <p align=center
 
  ೀ **kono / willow** **they ৴ them** 𓈒   ˙ ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
@@ -31,6 +34,9 @@ feel ABSOLUTELY free to follow me !
 <p align=center
 
 ꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ cavaliere angelo's #1 gooner. ⑅
+
+hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
+
 
 <p align=center
 
