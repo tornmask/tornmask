@@ -56,7 +56,7 @@ feel ABSOLUTELY free to follow me !
 
 <p align=center
 
-![Alt text](mdreh9.gif)
+![Alt text](mdreh9.gif) ![Alt text](pepiag.gif)
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
