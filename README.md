@@ -42,7 +42,7 @@ feel ABSOLUTELY free to follow me !
 
 <p align=center
 
- [here](https://konomiyyoo.atabook.org/)![Alt text](GZWu3gj.gif)
+ ഒ *sign ata! ->* 𓈒   ˙ [here](https://konomiyyoo.atabook.org/)![Alt text](GZWu3gj.gif)
 
 <p align=center
 
