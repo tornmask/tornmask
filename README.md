@@ -1,6 +1,6 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=lil-ol'-mischieves&color=D62900) 
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=𓈒___˙profile_views_ഒ&color=D62900) 
 
 <p align=center
 
