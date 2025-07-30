@@ -26,7 +26,7 @@ feel ABSOLUTELY free to follow me !
 
 <p align=center
 
-**call me, kono / willow❞.** ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
+**kono / willow** **they ৴ them** **nonchalant person nowadays** ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
 
 <p align=center
 
