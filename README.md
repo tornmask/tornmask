@@ -57,7 +57,7 @@ feel ABSOLUTELY free to follow me !
 <p align=center
 
 ![Alt text](mdreh9.gif) ![Alt text](pepiag.gif) ![Alt text](456707126-4b9294bf-b734-4941-9f6c-dfb32ffe6564.png) ![text](ff6x7f.webp) ![woah](ne5cqk.gif) ![si](91zyd2.gif) ![s](5eqdjt.gif) ![o](qw204s.webp) ![i](s4pkan.gif) ![o](girlfriend.gif)
-![i](tumblr_4003a668cbbe7037e9dd2ff128e4306c_61be5da3_75.gif) ![p](me4hlk.gif) ![y](sxpn4n.gif) ![u](qwvpp3.gif) ![t](3wc68y.gif) ![i](afbrgc.gif) ![y](tumblr_a81f2fca9bd059a36a494db8ac80224d_9711d638_250.gif)
+![i](tumblr_4003a668cbbe7037e9dd2ff128e4306c_61be5da3_75.gif) ![p](me4hlk.gif) ![y](sxpn4n.gif) ![u](qwvpp3.gif) ![t](3wc68y.gif) ![i](afbrgc.gif) ![y](tumblr_a81f2fca9bd059a36a494db8ac80224d_9711d638_250.gif) ![u](tumblr_26f69c621842612c8a907cfd1fd3be87_21661e5a_75.gif) ![l](tumblr_c4de26c9032db5a4c085915069b440b8_534a4ea5_75.gif)
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
