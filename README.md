@@ -26,7 +26,11 @@ feel ABSOLUTELY free to follow me !
 
 <p align=center
 
-**kono / willow** **they ৴ them** **nonchalant person nowadays** ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
+ ೀ **kono / willow** **they ৴ them** 𓈒   ˙ ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
+
+<p align=center
+
+꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ cavaliere angelo's #1 gooner. ⑅
 
 <p align=center
 
