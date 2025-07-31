@@ -8,7 +8,7 @@ feel ABSOLUTELY free to follow me ! ( I'LL FOLLOW BACK ^v^ )
 
 <p align=center
 
-![Alt text](Untitled10_20250730060701.jpg)
+![Alt text](Untitled17_20250731185030.jpg)
 
 <p align=center
 
