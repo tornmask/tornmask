@@ -4,7 +4,7 @@
 
 <p align=center
 
-feel ABSOLUTELY free to follow me !
+feel ABSOLUTELY free to follow me ! ( I'LL FOLLOW BACK ^v^ )
 
 <p align=center
 
