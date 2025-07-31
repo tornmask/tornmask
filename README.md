@@ -69,7 +69,7 @@ feel ABSOLUTELY free to follow me ! ( I'LL FOLLOW BACK ^v^ )
 
 <p align=center
 
-![Alt text](IMG_3808.gif) ![Alt text](opo4x2.png) ![Alt text](8ax22n.png) ![Alt text](gx0mj3.gif) ![i](2dhlwy.gif) ![o](12o6gh.gif) ![o](piku61.gif) ![o](ogym5i.png) ![o](ihnum8.png) ![o](9zkj28.png) ![o](xk7skg.gif) ![o](uo4mx4.gif) ![o](8bajve.jpg) ![o](4ny148.gif)
+![Alt text](IMG_3808.gif) ![Alt text](opo4x2.png) ![Alt text](8ax22n.png) ![Alt text](gx0mj3.gif) ![i](2dhlwy.gif) ![o](12o6gh.gif) ![o](piku61.gif) ![o](ogym5i.png) ![o](ihnum8.png) ![o](9zkj28.png) ![o](xk7skg.gif) ![o](uo4mx4.gif) ![o](8bajve.jpg) ![o](4ny148.gif) ![o](2b2h0z.gif) ![o](n4m3og.gif) ![o](miy9ix.gif)
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
