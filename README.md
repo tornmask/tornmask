@@ -85,4 +85,4 @@ feel ABSOLUTELY free to follow me ! ( I'LL FOLLOW BACK ^v^ )
 
 <p align=center
 
-want a 360 gif? click this ! -> [here](https://www.3dgifmaker.com/360Spin)
+![o](v4fcrIx.gif) want a _360 gif?_ click this ! -> [here](https://www.3dgifmaker.com/360Spin) ![o](GZWu3gj.gif)
