@@ -71,3 +71,10 @@ feel ABSOLUTELY free to follow me ! ( I'LL FOLLOW BACK ^v^ )
 
 ![Alt text](IMG_3808.gif) ![Alt text](opo4x2.png) ![Alt text](8ax22n.png) ![Alt text](gx0mj3.gif)
 
+<hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
+
+
+<p align=center
+
+![a](Untitled19_20250731185727.jpg)
+
