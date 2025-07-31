@@ -61,6 +61,10 @@ feel ABSOLUTELY free to follow me ! ( I'LL FOLLOW BACK ^v^ )
 
 <p align=center
 
+꒰꒰ credits to the owners who owns these buttons ^_^!
+
+<p align=center
+
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&pause=1000&color=CCF7F6&center=true&vCenter=true&width=435&lines=i+love+lady+(mary)+%5E_%5E" alt="Typing SVG" /></a>
 
 <p align=center
