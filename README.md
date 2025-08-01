@@ -4,7 +4,7 @@
 
 <p align=center
 
-feel ABSOLUTELY free to follow me.
+hey... follow me... pspsps... i'm not weird i swear.
 
 <p align=center
 
