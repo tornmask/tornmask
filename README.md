@@ -32,7 +32,7 @@ hey... follow me... pspsps... i'm not weird i swear.
 
 <p align=center
 
-꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ cavaliere angelo's #1 gooner. ⑅
+꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ cavaliere angelo's toes. ⑅
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
