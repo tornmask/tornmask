@@ -34,6 +34,10 @@ hey... follow me... pspsps... i'm not weird i swear.
 
 ꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ cavaliere angelo's toes. ⑅
 
+<p align=center
+
+𓍼 c*h is always welcome '>' !
+
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
 <p align=center
