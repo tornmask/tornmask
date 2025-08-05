@@ -1,7 +1,6 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=𓈒___˙profile_views_ഒ&color=D62900) 
-
+![Profile views](https://komarev.com/ghpvc/?username=WILLIES)
 <p align=center
 
 hey... follow me... pspsps... i'm not weird i swear.
