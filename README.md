@@ -8,7 +8,7 @@ hey... follow me... pspsps... i'm not weird i swear.
 
 <p align=center
 
-![Alt text](Untitled17_20250810103253.jpg)
+![Alt text](1754794180259_2620e38b32b2c634fa553bed6809fb4f_2_2_art.jpg)
 
 <p align=center
 
