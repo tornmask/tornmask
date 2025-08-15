@@ -8,7 +8,7 @@
 
 <p align=center
 
-![Alt text](1754794180259_2620e38b32b2c634fa553bed6809fb4f_2_2_art.jpg)
+![Alt text](Untitled17_20250815202421.jpg)
 
 <p align=center
 
