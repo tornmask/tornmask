@@ -8,13 +8,7 @@
 
 <p align=center
 
-![Alt text](Untitled17_20250815202421.jpg)
-
-<p align=center
-
-![Alt text](3dgifmaker80184.gif)  
-
-<hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
+![Alt text](Untitled17_20250815203253.png)
 
 <p align=center
 
