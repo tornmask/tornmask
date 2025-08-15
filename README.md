@@ -1,10 +1,10 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=「_CRIMSONS_」&color=de6262) 
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=「_CRIMSONS_」&color=8ccfdb) 
 
 <p align=center
 
-hey... follow me... pspsps... i'm not weird i swear.
+      hey... follow me... pspsps... i'm not weird i swear.
 
 <p align=center
 
