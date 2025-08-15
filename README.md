@@ -14,10 +14,6 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=ffffff)](https://github.com/kittinan/spotify-github-profile)
 
-<p align=center
-
-![Alt text](284.gif)<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&pause=1000&color=CCF7F6&center=true&vCenter=true&width=435&lines=feel+free+to+interact+with+me!;unless+if+i+have+DNI." alt="Typing SVG" /></a>![Alt text](284.gif)
-
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
 <p align=center
@@ -26,11 +22,11 @@
 
 <p align=center
 
-꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ cavaliere angelo's toes. ⑅
+꒰ a nonchalant person.. but still a yapper ! 𓈒   ˙ nero's left white hair. ⑅
 
 <p align=center
 
-𓍼 c*h is always welcome '>' !
+𓍼 c*h is always welcome ^_^! .  . feel free to interact, unless if i have DNI. though, smtimes i'm.. dry and cannot talk, i'll try to refuse talking. sorry if i do.
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
