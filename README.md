@@ -40,7 +40,7 @@
 
 <p align=center
 
- ![u](v4fcrIx.gif) ഒ *sign ata! ->* 𓈒   ˙ [here](https://konomiyyoo.atabook.org/) ![Alt text](GZWu3gj.gif)
+ 𓊆   sign ata! ->  [here](https://konomiyyoo.atabook.org/)   ![o](shLS9uP.gif)  𓊇
 
 <p align=center
 
