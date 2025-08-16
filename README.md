@@ -36,7 +36,7 @@
 
 <p align=center
 
-![o](0.gif)![Alt text](1.gif)![o](piston-right.gif)
+![p](piston-left.gif)![o](0.gif)![Alt text](1.gif)![o](2.gif)![o](piston-right.gif)
 
 <p align=center
 
