@@ -18,6 +18,9 @@
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=6087ab)](https://github.com/kittinan/spotify-github-profile)
 
+<p align=center
+
+![o](tumblr_4d73372ab0a8b9016a8bf171ce795115_773cccd5_250.gif)      
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
 <p align=center
