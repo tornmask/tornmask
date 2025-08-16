@@ -18,7 +18,7 @@
 
 <p align=center
 
- ೀ **kono / willow** **they ৴ them** 𓈒   ˙ ![Alt text](tumblr_ca01b4bde0808bf3584ef4cbb3dd0f76_6694e173_75.gif)
+ **kono / willow** — **they ৴ them** ![Alt text](IMG_6207.gif)
 
 <p align=center
 
