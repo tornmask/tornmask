@@ -59,15 +59,7 @@
 
 <p align=center
 
-꒰꒰ credits to the owners who owns these buttons ^_^!
-
-<p align=center
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&pause=1000&color=CCF7F6&center=true&vCenter=true&width=435&lines=i+love+lady+(mary)+%5E_%5E" alt="Typing SVG" /></a>
-
-<p align=center
-
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bitcount&duration=1000&pause=1&color=930000&center=true&vCenter=true&width=435&lines=all+the+lovers;all+the+haters;and+all+the+people;that+call+themselves+players;HOT+MAMAS;PIMP+DADDIES;and+the+people+;rollin'+up+in+caddies;hey%2C+rockers;HIP-HOPPERS;and+everybody;all+around+the+world" alt="Typing SVG" /></a>
+𓊆  credits to the owners who owns these buttons ^_^!  𓊇
 
 <p align=center
 
