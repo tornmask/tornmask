@@ -25,11 +25,11 @@
 
 <p align=center
 
- **kono / willow** — **they ৴ them** ![Alt text](IMG_6207.gif)
+![o](IMG_6206.gif) **kono / willow** — **they ৴ them** ![Alt text](IMG_6207.gif)
 
 <p align=center
 
-![a](shLS9uP.gif) a nonchalant person.. but still a yapper ! 𓈒   ˙ nero's left white hair. ![a](tumblr_a75858c90bdf73820cad20cf7063703e_6d62a759_75.gif)
+![a](shLS9uP.gif) a nonchalant person.. but still a yapper ! ┊ nero's left white hair. ![a](tumblr_a75858c90bdf73820cad20cf7063703e_6d62a759_75.gif)
 
 <p align=center
 
