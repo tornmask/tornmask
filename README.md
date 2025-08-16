@@ -1,6 +1,6 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=「_CRIMSONS_」&color=8ccfdb) 
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=「_CRIMSONS_」&color=6087ab) 
 
 <p align=center
 
@@ -26,7 +26,7 @@
 
 <p align=center
 
-𓍼 c*h is always welcome ^_^! .  . feel free to interact, unless if i have DNI. though, smtimes i'm.. dry and cannot talk, i'll try to refuse talking. sorry if i do.
+𓍼 c*h is always welcome ^_^! .  . feel free to interact, unless if i have DNI. though, smtimes i'm.. dry and cannot talk, but i'll try to talk.  . sorry.
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
