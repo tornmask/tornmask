@@ -12,6 +12,10 @@
 
 <p align=center
 
+![Alt text](ezgif-2-bd7b1220e0.gif)
+
+<p align=center
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=6087ab)](https://github.com/kittinan/spotify-github-profile)
 
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
