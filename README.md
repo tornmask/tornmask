@@ -83,4 +83,4 @@
 
 <p align=center
 
-![o](v4fcrIx.gif) want a _360 gif?_ click this ! -> [here](https://www.3dgifmaker.com/360Spin) ![o](GZWu3gj.gif)
+![o](v4fcrIx.gif) want a _360 gif![o](WlLTWDN.gif)_ click this ! -> [here](https://www.3dgifmaker.com/360Spin) ![o](GZWu3gj.gif)
