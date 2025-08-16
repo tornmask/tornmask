@@ -59,7 +59,7 @@
 
 <p align=center
 
-𓊆  credits to the owners who owns these buttons ^_^!  𓊇
+𓊆  credits to the owners who owns these buttons ! ![o](D6rJY6n.gif) 𓊇
 
 <p align=center
 
