@@ -1,6 +1,6 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=「_CRIMSONS_」&color=6087ab) 
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=「_CRIMS_」&color=bf1134) 
 
 <p align=center
 
