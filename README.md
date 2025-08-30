@@ -40,7 +40,7 @@
 
 <p align=center
 
-![o](5oBV0ok.gif)  ⠀. 　[𐌀](https://konomiyyoo.atabook.org/)𝔱𝔞𝔟𝔬𝔬𝔨⠀ ![AWFUL](ondW81T.gif)　⠀ 　༄⠀ 　⠀ 　[𐌔](https://ninthkrohnisfere.straw.page)𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢⠀ ![DISGRACE](ondW81T.gif)　⠀ 　༄⠀ 　    [𐌔](https://spacehey.com/lockedtrigger)𝔭𝔞𝔠𝔢𝔥𝔢𝔶 ![IMPURE](hcEOJj0.gif) ⠀ .　 ![o](1p7QTmr.gif)
+![o](5oBV0ok.gif)  ⠀. 　[𐌀](https://konomiyyoo.atabook.org/)𝔱𝔞𝔟𝔬𝔬𝔨⠀ ![AWFUL](ondW81T.gif)　⠀ 　༄⠀ 　⠀ 　[𐌔](https://ninthkrohnisfere.straw.page/)𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢⠀ ![DISGRACE](ondW81T.gif)　⠀ 　༄⠀ 　    [𐌔](https://spacehey.com/lockedtrigger)𝔭𝔞𝔠𝔢𝔥𝔢𝔶 ![IMPURE](hcEOJj0.gif) ⠀ .　 ![o](1p7QTmr.gif)
 
 <p align=center
 
