@@ -19,7 +19,7 @@
 
 <p align=center
 
-![o](pixil-frame-01.png)
+![o](pixil-frame-01.png) ![o](pixil-frame-02.png)
 
 <p align=center
 
