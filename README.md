@@ -10,12 +10,17 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=1&color=CFD5B0&center=true&vCenter=true&width=435&lines=They+said+grief+was+love+with-;nowhere+to+go.+.+.;but+mine+has+grown+teeth%2C;sharpened+on+loss%2C;and+it+howls+for+vengeance.+.+.)](https://git.io/typing-svg)
 
-
-      hey... follow me... pspsps... i'm not weird i swear.
+>hey... follow me... pspsps... i'm not weird i swear.
 
 <p align=center
 
 ![Alt text](Untitled49_20250830134055.jpg)
 <hr style="border: none; height: 1px; background-color: #444; margin: 20px 0;">
 
+<p align=center
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=false&theme=novatorem&show_offline=true&background_color=121212&interchange=false&bar_color=6087ab)](https://github.com/kittinan/spotify-github-profile)
+
+<p align=center
+
+
