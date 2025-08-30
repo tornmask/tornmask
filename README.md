@@ -27,7 +27,8 @@
 
 <p align=center
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Glitch&duration=1&color=CEF368&center=true&vCenter=true&width=435&lines=INFO)](https://git.io/typing-svg) ![o](37JGaUe.gif)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Glitch&duration=5&color=CEF368&center=true&vCenter=true&width=435&lines=INFO;INFO;INFO;INFO;INFO;INFO;%E2%98%AF;%F0%92%85%92%F0%92%88%94%F0%92%85%92%F0%92%87%AB%F0%92%84%86;%E2%81%B6%E2%81%B6%E2%81%B6;%E2%81%B6%E2%81%B6%E2%81%B6;NARI;NARI;NARI;NARI;NARI;RESISTANCE;RESISTANCE;RESIST;RESIST;RESIST;RESIST;HER;HER;HER;HER;HER;HER;THEM;THEM;THEM;THEM;THEM)](https://git.io/typing-svg)    ![o](37JGaUe.gif)
+
 
 <p align=center
 
@@ -35,5 +36,13 @@
 
 <p align=center
 
+![o](toxic.gif)
+
+<p align=center
+
 ![o](5oBV0ok.gif) [𐌀](https://konomiyyoo.atabook.org/)𝔱𝔞𝔟𝔬𝔬𝔨⠀ 　⠀ 　༄⠀ 　⠀ 　[𐌔](https://konomisses.straw.page/)𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢⠀ 　⠀ 　༄⠀ 　    [𐌔](https://spacehey.com/lockedtrigger)𝔭𝔞𝔠𝔢𝔥𝔢𝔶 ![o](1p7QTmr.gif)
+
+<p align=center
+
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Glitch&duration=10&pause=5&color=CEF368&center=true&vCenter=true&width=435&lines=JOIN;JOIN;JOIN;JOIN;JOIN;THE;THE;THE;THE;THE;RESISTANCE;RESISTANCE;RESISTANCE;RESISTANCE;RESISTANCE;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;...+.+.+-.-+%2F+---+..-+.-.+%2F+.-.+.+...-+.+-.+--.+.;%F0%92%85%92%F0%92%88%94%F0%92%85%92%F0%92%87%AB%F0%92%84%86;%F0%92%85%92%F0%92%88%94%F0%92%85%92%F0%92%87%AB%F0%92%84%86;%F0%92%85%92%F0%92%88%94%F0%92%85%92%F0%92%87%AB%F0%92%84%86;%E2%83%9D%F0%96%A4%90;%E2%83%9D%F0%96%A4%90)](https://git.io/typing-svg)
 
