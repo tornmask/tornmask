@@ -50,3 +50,4 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Asimovian&duration=1&pause=1000&color=E8E6B7&center=true&vCenter=true&width=435&lines=DISCORD%3A+raggeddreams.;PM+for+the+cool;fonts+that+change+quickly)](https://git.io/typing-svg)
 
+![o](Untitled50_20250830194355.webp)
