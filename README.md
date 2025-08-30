@@ -1,6 +1,6 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=⪩_⪨_&color=94ae5b) 
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=⪩_⪨_&color=94ae5b&style=plastic) 
 
 <p align=center
 
