@@ -23,4 +23,13 @@
 
 <p align=center
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Rubik+Glitch&duration=1&color=CEF368&center=true&vCenter=true&width=435&lines=INFO)](https://git.io/typing-svg) ![o](37JGaUe.gif)
+
+<p align=center
+
+![o](U6W0Ya2.gif)⠀ 　  𝚜𝚊𝚐𝚎 ┊ 𝚠𝚒𝚕𝚕𝚘𝚠 .  .  . ⠀ 　⪩ ⪨⠀ 　   ![o](S83DLgq.gif)  ⠀ 　𝔪𝔦𝔫𝔬𝔯 ⠀![o](37JGaUe.gif) 　ᵗʰᵉʸ / ᵗʰᵉᵐ
+
+<p align=center
+
+![o](5oBV0ok.gif) [𐌀](https://konomiyyoo.atabook.org/)𝔱𝔞𝔟𝔬𝔬𝔨⠀ 　⠀ 　༄⠀ 　⠀ 　[𐌔](https://konomisses.straw.page/)𝔱𝔯𝔞𝔴𝔭𝔞𝔤𝔢⠀ 　⠀ 　༄⠀ 　    [𐌔](https://spacehey.com/lockedtrigger)𝔭𝔞𝔠𝔢𝔥𝔢𝔶 ![o](1p7QTmr.gif)
 
