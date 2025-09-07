@@ -1,6 +1,6 @@
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=⪩_⪨_&color=f0ea83&style=plastic)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=⪩_⪨_&color=374290&style=plastic)  
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -11,10 +11,6 @@
 " ｉ ｆｏｕｎｄ ｙｏｕ. "
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
-<p align=center
-
-" 𝗒𝗈𝗎 𝖿𝗈𝗎𝗇𝖽 𝗆𝖾. "
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -32,11 +28,11 @@
 
 <p align=center
 
-![*](2vuX1yq.gif) 𓈒ㅤwillow　◞⠀⠀sage　∔  ![spar](rFisINf.png)
+ 𓈒ㅤwillow　◞⠀⠀sage　∔  ![spar](rFisINf.png)
 
 <p align=center
 
-♱　﹒　　𝗍𝗁𝖾𝗒         ![o](KPrG9RD.gif)　 𝗍𝗁𝖾𝗆　 　 𓎟𓎟
+♱　﹒　　  𝗍𝗁𝖾𝗒    　⠀౨ৎ　  𝗍𝗁𝖾𝗆　 　 𓎟𓎟
 
 <p align=center
 
