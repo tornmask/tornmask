@@ -32,7 +32,7 @@
 
 <p align=center
 
-━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ ![9](n8ysuCQ.gif)　　⏝ི
+━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ ⏝ི
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" /> 
 
