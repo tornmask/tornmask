@@ -8,7 +8,11 @@
 
 <p align=center
 
-" ｆｏｕｎｄ ｙｏｕ ! "
+" ｉ ｆｏｕｎｄ ｙｏｕ. "
+
+<p align=center
+
+" 𝗒𝗈𝗎 𝖿𝗈𝗎𝗇𝖽 𝗆𝖾. "
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -35,3 +39,23 @@
 <p align=center
 
 ━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ ![9](n8ysuCQ.gif)　　⏝ི
+
+<img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" /> 
+
+<img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+
+<p align=center
+
+[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/) ━━╋━ [ｓｔｒａｗｐａｇｅ](https://ninthkrohnisfere.straw.page/) ━━╋━ [ｓｐａｃｅｈｅｙ](https://spacehey.com/lockedtrigger)
+
+<img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />  
+
+<img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+<p align=left
+
+
+
+
+" Ｉ ｐｒｏｍｉｓｅ ｔｈａｔ ｉｎ ａｎｏｔｈｅｒ ｌｉｆｅ, Ｉ'ｌｌ ｆｉｎｄ ｙｏｕ ａｇａｉｎ. "
+
+
