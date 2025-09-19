@@ -3,7 +3,7 @@
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_ᡕᠵデᡁ᠊╾━__&color=374290&style=flat)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_ᡕᠵデᡁ᠊╾━__&color=dafafe&style=flat)  
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -41,7 +41,7 @@
 
 <p align=center
 
-[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/) ━━╋━ [ｓｔｒａｗｐａｇｅ](https://ninthkrohnisfere.straw.page/) ━━╋━ [ｓｐａｃｅｈｅｙ](https://spacehey.com/lockedtrigger)
+[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/) ━━╋━ [ｓｔｒａｗｐａｇｅ](https://ninthkrohnisfere.straw.page/) ━━╋━ [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />  
 
