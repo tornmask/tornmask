@@ -13,15 +13,15 @@
 
 <p align=center
 
-<img width="530" height="560" alt="image-2d73-gradientmap-pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+<img width="530" height="560" alt="image-2d73-gradientmap.pro" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
-<img width="530" height="560" alt="image-2d73-gradientmap-pro.png" src="https://i.postimg.cc/Kzc0msZx/Untitled52-20250907160243.png](https://i.postimg.cc/JnGcsdxR/image-2d73-gradientmap-pro.png" />
+<img width="530" height="560" alt="image-2d73-gradientmap.pro" src="https://postimg.cc/FdXJqpw6" />
 
 <p align=center
 
-<img width="73" height="56" alt="image-2d73-gradientmap-pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+<img width="73" height="56" alt="image-2d73-gradientmap.pro" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
-<img width="73" height="56" alt="image-2d73-gradientmap-pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+<img width="73" height="56" alt="image-2d73-gradientmap.pro" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
 <p align=center
 
