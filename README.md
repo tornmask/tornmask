@@ -9,7 +9,7 @@
 
 <p align=center
 
-$${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}$$
+${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}$
 
 <p align=center
 
