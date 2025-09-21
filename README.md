@@ -9,7 +9,7 @@
 
 <p align=center
 
-" ｉ ｆｏｕｎｄ ｙｏｕ. "
+$${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}$$
 
 <p align=center
 
