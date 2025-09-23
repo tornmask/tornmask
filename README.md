@@ -20,6 +20,15 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <p align=center
 
+[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/) ━━╋━ [ｓｔｒａｗｐａｇｅ](https://ninthkrohnisfere.straw.page/) ━━╋━ [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
+
+<img width="73" height="56" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+
+<img width="73" height="56" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
+
+
+<p align=center
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_ᡕᠵデᡁ᠊╾━__&color=f36845&style=plastic)  
 
 <p align=center
@@ -38,17 +47,9 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
-<p align=center
-
-[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/) ━━╋━ [ｓｔｒａｗｐａｇｅ](https://ninthkrohnisfere.straw.page/) ━━╋━ [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
-
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />  
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
-<p align=center
-
-" Ｉ ｐｒｏｍｉｓｅ ｔｈａｔ ｉｎ ａｎｏｔｈｅｒ ｌｉｆｅ, Ｉ'ｌｌ ｆｉｎｄ ｙｏｕ ａｇａｉｎ. "
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -59,7 +60,6 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />  
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
 
 <p align=center
 
