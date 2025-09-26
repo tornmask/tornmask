@@ -8,19 +8,11 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <p align=center
 
-<img width="530" height="560" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
-<img width="530" height="560" alt="image-2d73-gradientmap.pro.png" src="https://i.postimg.cc/JnGcsdxR/image-2d73-gradientmap-pro.png" />
+![byme](ezgif-83a4967ceea30e.gif)
 
 <p align=center
 
-<img width="73" height="56" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
-<img width="73" height="56" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
-<p align=center
-
-[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/)   ${\color{orange} ━━╋━ {}}$   [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
+[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/)   ━━╋━    [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
 
 <img width="73" height="56" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
