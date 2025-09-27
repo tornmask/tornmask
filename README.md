@@ -12,7 +12,7 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <p align=center
 
-[ａｔａｂｏｏｋ](https://konomiyyo.atabook.org/)   ━━╋━    [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
+[ａｔａｂｏｏｋ](https://fallenking.atabook.org/)   ━━╋━    [ｒｅｔｒｙ](https://rentry.co/radioactivelazer)
 
 <img width="73" height="56" alt="image-2d73-gradientmap.pro.png" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
