@@ -12,23 +12,11 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <p align=center
 
-[atabook](https://fallenking.atabook.org/)   ━━╋━    [rentry](https://rentry.co/radioactivelazer)
-
-<p align=center
-
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_ᡕᠵデᡁ᠊╾━__&color=f36845&style=plastic)  
 
 <p align=center
 
- 𓈒ㅤ willow 　◞⠀⠀shelby　∔  ![spar](rFisINf.png)
-
-<p align=center
-
-♱　﹒　　  𝗍𝗁𝖾𝗒    　⠀౨ৎ　  𝗍𝗁𝖾𝗆　 　 𓎟𓎟
-
-<p align=center
-
-━━╋━　main　⠀౨ৎ　⠀ｍｉｎｏｒ ⏝ི
+${\color{orange}willow \space \color{lightblue} , \space \color{orange} shelby \space \color{lightblue} ✦ \space \color{lightblue} they \space \color{lightblue} / \space \color{darkblue}them. \space \color{orange}c+h \space \color{orange}freely. \space \color{lightblue}✦ \space \color{lightblue}sign \space \color{darkblue}atabook. {}}$
 
 <p align=center
 
@@ -36,7 +24,7 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <p align=center
 
-[directory](https://guns.lol/fatalstrike)
+[directory](https://guns.lol/fatalstrike) $${\color{lightblue}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{lightblue}✦ {}}$$     [rentry](https://rentry.co/radioactivelazer) 
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" /> 
 
