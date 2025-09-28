@@ -32,7 +32,7 @@ ${\color{orange}best \space \color{lightblue} viewed \space \color{orange} on \s
 
 <p align=center
 
-  ${\color{orange}we \space \color{lightblue}PLEASED, \space \color{orange}to \space \color{orange}meet \space \color{orange}you. {}}$
+  ${\textsf{\color{#4CCEDA}we are PLEASED, to meet you. }}$
 　     　　　
 <p align=center
 
