@@ -36,7 +36,7 @@ ${\color{orange}best \space \color{lightblue} viewed \space \color{orange} on \s
 　     　　　
 <p align=center
 
-𝗊𝗎𝗈𝗍𝖾𝗌 𝖿𝗋𝗈𝗆 𝗍𝗁𝖾 𝗀𝖺𝗆𝗆𝖺𝖻𝖾𝖺𝗆 𝖿𝖺𝗇𝖿𝗂𝖼 𝖺𝗇𝗀𝗌𝗍 𝖫𝖨𝖭𝖪 -> [here.](https://archiveofourown.org/works/69474491?view_adult=true)
+${\textsf{\color{#89196E}𝗊𝗎𝗈𝗍𝖾𝗌 𝖿𝗋𝗈𝗆 𝗍𝗁𝖾 𝗀𝖺𝗆𝗆𝖺𝖻𝖾𝖺𝗆 𝖿𝖺𝗇𝖿𝗂𝖼 𝖺𝗇𝗀𝗌𝗍 𝖫𝖨𝖭𝖪 -> }}$ [here.](https://archiveofourown.org/works/69474491?view_adult=true)
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />  
 
