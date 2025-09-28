@@ -24,7 +24,7 @@ ${\color{orange}willow \space \color{lightblue} , \space \color{orange} shelby \
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{lightblue}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{lightblue}✦ {}}$$     [rentry](https://rentry.co/radioactivelazer)　　 ━
+━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{lightblue}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{lightblue}✦ {}}$$     [rentry](https://rentry.co/radioactivelazer)  $${\color{lightblue}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate)　　 ━
 
 <p align=center
 
