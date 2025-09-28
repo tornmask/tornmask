@@ -29,6 +29,10 @@ ${\color{orange}willow \space \color{lightblue} , \space \color{orange} shelby \
 <p align=center
 
 ${\color{orange}best \space \color{lightblue} viewed \space \color{orange} on \space \color{lightblue}PC. {}}$
+
+<p align=center
+
+  ${\color{orange}we \space \color{lightblue}PLEASED, \space \color{orange}to \space \color{orange}meet \space \color{orange}you. {}}$
 　     　　　
 <p align=center
 
