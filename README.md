@@ -1,4 +1,4 @@
-![madebyme](image-c908-gradientmap.pro.png)
+[![madebyme](image-c908-gradientmap.pro.png)](https://gradientmap.app)
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -8,7 +8,7 @@ ${\color{orange}"I \space \color{lightblue} found \space \color{orange}you." {}}
 
 <p align=center
 
-![byme](ezgif-676b2e1ea3833c.gif)
+[![byme](ezgif-676b2e1ea3833c.gif)](https://ezgif.com)
 
 <p align=center
 
