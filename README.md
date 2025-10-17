@@ -56,6 +56,8 @@ ${\textsf{\color{#637997}𝗊𝗎𝗈𝗍𝖾𝗌 𝖿𝗋𝗈𝗆 𝗍𝗁𝖾 
 
 ${\textsf{\color{#637997}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
+<p align="center">
+<a href="https://github.com/pt-awards">  <img src="https://camo.githubusercontent.com/1f941bcc72143af0aa58af1b9839b12895f25f8904c62c04a102ff03d2d3976f/68747470733a2f2f66696c65732e636174626f782e6d6f652f3666726a676c2e706e67" width="88" alt="Badge"> </a>
 <p align=center
 
 ![lol](image-657d-gradientmap.pro.png)
