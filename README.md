@@ -33,6 +33,12 @@ ${\color{#637997}best \space \color{lightblue} viewed \space \color{#c5ccd7} on 
 <p align=center
 
   ${\textsf{\color{#637997}we are PLEASED, to meet you. }}$
+
+  <div align="center">
+    <details>
+              <summary> <td>$${\color{lightblue}\verb|✦|}$$</td></summary>
+<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=80c5bf" align="center" alt="LASTFM"></a><br><br>
+       ${\textsf{\color{#637997}please recommend me songs, characters, or tell me your favorite artist singer on my atabook! }}$<br>
 　     　　　
 <p align=center
 
