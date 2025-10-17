@@ -12,7 +12,7 @@ ${\color{#637997}"My \space \color{lightblue} God, \space \color{#c5ccd7}my \spa
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_love._&color=50698b&style=flat-square)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Love.+++_&color=50698b&style=flat-square)  
 
 <p align=center
 
