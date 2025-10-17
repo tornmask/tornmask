@@ -37,8 +37,12 @@ ${\color{#637997}best \space \color{lightblue} viewed \space \color{#c5ccd7} on 
   <div align="center">
     <details>
               <summary> <td>$${\color{lightblue}\verb|✦|}$$</td></summary>
-<a href="https://www.last.fm/user/vicsop"><img src="https://lastfm-recently-played.vercel.app/api?user=vicsop&footer_style=wave&count=1&width=500&loved=true&header_style=none&bg_color=80c5bf" align="center" alt="LASTFM"></a><br><br>
-       ${\textsf{\color{#637997}please recommend me songs, characters, or tell me your favorite artist singer on my atabook! }}$<br>
+
+  ${\textsf{\color{#637997}please recommend me songs, characters, or tell me your favorite artist singer on my atabook! }}$<br>
+
+<p align=center
+
+  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=7d8baa&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 　     　　　
 <p align=center
 
