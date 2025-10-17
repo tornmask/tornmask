@@ -54,6 +54,10 @@ ${\textsf{\color{#637997}𝗊𝗎𝗈𝗍𝖾𝗌 𝖿𝗋𝗈𝗆 𝗍𝗁𝖾 
 
 <p align=center
 
+${\textsf{\color{#637997}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
+
+<p align=center
+
 ![lol](image-657d-gradientmap.pro.png)
 
 
