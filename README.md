@@ -44,6 +44,6 @@ ${\textsf{\color{#637997}𝗊𝗎𝗈𝗍𝖾𝗌 𝖿𝗋𝗈𝗆 𝗍𝗁𝖾 
 
 <p align=center
 
-![lol](image-3559-gradientmap.pro.png)
+![lol](image-657d-gradientmap.pro.png)
 
 
