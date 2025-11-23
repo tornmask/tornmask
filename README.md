@@ -16,7 +16,7 @@ ${\color{#ffe29e}"Can \space \color{#6067b3} we \space \color{#ffe29e}go \space 
 
 <p align=center
 
-${\color{#ffe29e}willow \space \color{#6067b3} , \space \color{#ffe29e} shelby \space \color{#6067b3} ✦ \space \color{#ffe29e} they \space \color{#ffe29e} / \space \color{#6067b3}them. \space \color{#ffe29e}c+h \space \color{#6067b3}freely. \space \color{#ffe29e}✦ \space \color{#6067b3}sign \space \color{#ffe29e}atabook. {}}$
+${\color{#ffe29e}willow \space \color{#6067b3} , \space \color{#ffe29e} kaizer/kai/zee \space \color{#6067b3} ✦ \space \color{#ffe29e} they \space \color{#ffe29e} / \space \color{#6067b3}them. \space \color{#ffe29e}c+h \space \color{#6067b3}freely. \space \color{#ffe29e}✦ \space \color{#6067b3}sign \space \color{#ffe29e}atabook. {}}$
 
 <p align=center
 
