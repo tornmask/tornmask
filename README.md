@@ -46,12 +46,6 @@ ${\color{#ffe29e}best \space \color{#6067b3} viewed \space \color{#ffe29e} on \s
 　     　　　
 <p align=center
 
-<img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />  
-
-<img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
-
-<p align=center
-
 ${\textsf{\color{#ffe29e}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align="center">
