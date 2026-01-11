@@ -1,10 +1,10 @@
-(![madebyme](Untitled93_20260111215040.png)
+![madebyme](Untitled93_20260111215040.png)
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
 <p align=center
 
-${\color{#ffe29e}"Can \space \color{#6067b3} we \space \color{#ffe29e}go \space \color{#6067b3}home \space \color{#ffe29e}now?" {}}$
+${\color{#c0ff48}"Can \space \color{#3affff} we \space \color{#c0ff48}go \space \color{#3affff}home \space \color{#c0ff48}now?" {}}$
 
 <p align=center
 
@@ -12,11 +12,11 @@ ${\color{#ffe29e}"Can \space \color{#6067b3} we \space \color{#ffe29e}go \space 
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=you+_+loved+_+me?&color=6067b3&style=flat-square)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=you+_+loved+_+me?&color=3affff&style=flat-square)  
 
 <p align=center
 
-${\color{#ffe29e}willow \space \color{#6067b3} , \space \color{#ffe29e} kaizer/kai/zee \space \color{#6067b3} ✦ \space \color{#ffe29e} they \space \color{#ffe29e} / \space \color{#6067b3}them. \space \color{#ffe29e}c+h \space \color{#6067b3}freely. \space \color{#ffe29e}✦ \space \color{#6067b3}sign \space \color{#ffe29e}atabook. {}}$
+${\color{#c0ff48}willow \space \color{#3affff} , \space \color{#c0ff48} kaizer/kai/zee \space \color{#3affff} ✦ \space \color{#c0ff48} they \space \color{#3affff} / \space \color{#c0ff48}them. \space \color{#3affff}c+h \space \color{#c0ff48}freely. \space \color{#3affff}✦ \space \color{#c0ff48}sign \space \color{#3affff}atabook. {}}$
 
 <p align=center
 
@@ -24,19 +24,19 @@ ${\color{#ffe29e}willow \space \color{#6067b3} , \space \color{#ffe29e} kaizer/k
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{lightblue}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{lightblue}✦ {}}$$     [rentry](https://rentry.co/warmface)  $${\color{lightblue}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate)　　 ━
+━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{#c0ff48}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#3affff}✦ {}}$$     [rentry](https://rentry.co/warmface)  $${\color{#c0ff48}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate)　　 ━
 
 <p align=center
 
-${\color{#ffe29e}best \space \color{#6067b3} viewed \space \color{#ffe29e} on \space \color{#6067b3}PC. {}}$
+${\color{#c0ff48}best \space \color{#3affff} viewed \space \color{#c0ff48} on \space \color{#3affff}PC. {}}$
 
 <p align=center
 
-  ${\textsf{\color{#6067b3}we are PLEASED, to meet you. }}$
+  ${\textsf{\color{#cdfffc}we are PLEASED, to meet you. }}$
 
 <p align=center
 
-${\textsf{\color{#ffe29e}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
+${\textsf{\color{#c0ff48}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align="center">
 <a href="https://github.com/pt-awards">  <img src="https://camo.githubusercontent.com/1f941bcc72143af0aa58af1b9839b12895f25f8904c62c04a102ff03d2d3976f/68747470733a2f2f66696c65732e636174626f782e6d6f652f3666726a676c2e706e67" width="88" alt="Badge"> </a>
