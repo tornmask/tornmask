@@ -12,7 +12,7 @@ ${\color{#c0ff48}"Can \space \color{#3affff} we \space \color{#c0ff48}go \space 
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=you+_+loved+_+me?&color=3affff&style=flat-square)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=I+_+love+_+you.&color=3affff&style=flat-square)  
 
 <p align=center
 
