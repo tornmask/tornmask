@@ -1,4 +1,4 @@
-![madebyme](Untitled93_20260111215040.png)
+![madebyacreatorontumblr](Untitled93_20260111215040.png)
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -8,7 +8,7 @@ ${\color{#c0ff48}"Can \space \color{#3affff} we \space \color{#c0ff48}go \space 
 
 <p align=center
 
-![byme](ezgif-4dbcde6e1dec253d.gif)
+![byme](ezgif-482613e955a4e789.gif)
 
 <p align=center
 
