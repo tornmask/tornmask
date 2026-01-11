@@ -34,16 +34,6 @@ ${\color{#ffe29e}best \space \color{#6067b3} viewed \space \color{#ffe29e} on \s
 
   ${\textsf{\color{#6067b3}we are PLEASED, to meet you. }}$
 
-  <div align="center">
-    <details>
-              <summary> <td>$${\color{#ffe29e}\verb|✦|}$$</td></summary>
-
-  ${\textsf{\color{#6067b3}please recommend me songs, characters, or tell me your favorite artist singer on my atabook! }}$<br>
-
-<p align=center
-
-  [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=314mut7imtpm6vc6oq3g32g722qy&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=7d8baa&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-　     　　　
 <p align=center
 
 ${\textsf{\color{#ffe29e}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
