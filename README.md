@@ -1,4 +1,4 @@
-![madebyme](Untitled93_20260111215040.png)
+(![madebyme](Untitled93_20260111215040.png)
 
 <img width="73" height="56" alt="Untitled284_20250711193810" src="https://github.com/user-attachments/assets/072bb0a0-910c-44ef-a0b6-049d408f8f08" />
 
@@ -52,6 +52,6 @@ ${\textsf{\color{#ffe29e}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 <a href="https://github.com/pt-awards">  <img src="https://camo.githubusercontent.com/1f941bcc72143af0aa58af1b9839b12895f25f8904c62c04a102ff03d2d3976f/68747470733a2f2f66696c65732e636174626f782e6d6f652f3666726a676c2e706e67" width="88" alt="Badge"> </a>
 <p align=center
 
-![lol](Untitled93_20260111202028.png)
+![lol](Untitled93_20260111215032.png)
 
 
