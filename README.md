@@ -8,7 +8,7 @@ ${\color{#ffe29e}"Can \space \color{#6067b3} we \space \color{#ffe29e}go \space 
 
 <p align=center
 
-![byme](Untitled68_20251123195106.png)
+![byme](ezgif-4dbcde6e1dec253d.gif)
 
 <p align=center
 
