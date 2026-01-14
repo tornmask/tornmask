@@ -10,6 +10,10 @@ ${\color{#c0ff48}"Can \space \color{#3affff} we \space \color{#c0ff48}go \space 
 
 <p align=center
 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&duration=4000&pause=1&color=3AFFFF&center=true&vCenter=true&width=435&lines=I+am+the+dog+under+your+couch;Gnashing+teeth+and+open+mouth;Shouldn't+have+clawed+my+own+way+out;Loving+you's+my+favorite+house.)](https://git.io/typing-svg)
+
+<p align=center
+
 ![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++𝙒𝙖𝙩𝙚𝙧𝙢𝙚𝙘𝙝.ꕀ+++_&color=3affff&style=flat-square)  
 
 <p align=center
