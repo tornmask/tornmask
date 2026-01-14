@@ -26,7 +26,7 @@ ${\color{#c0ff48}willow \space \color{#3affff} , \space \color{#c0ff48} kaizer/k
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{#c0ff48}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#3affff}✦ {}}$$     [rentry](https://rentry.co/warmface)  $${\color{#c0ff48}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate)　　 ━
+━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{#c0ff48}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#3affff}✦ {}}$$     [rentry](https://rentry.co/warmface)  $${\color{#c0ff48}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate) $${\color{#3affff}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
 
 <p align=center
 
@@ -39,10 +39,6 @@ ${\color{#c0ff48}best \space \color{#3affff} viewed \space \color{#c0ff48} on \s
 <p align=center
 
 ${\textsf{\color{#c0ff48}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
-
-<p align="center">
-<a href="https://github.com/pt-awards">  <img src="https://camo.githubusercontent.com/1f941bcc72143af0aa58af1b9839b12895f25f8904c62c04a102ff03d2d3976f/68747470733a2f2f66696c65732e636174626f782e6d6f652f3666726a676c2e706e67" width="88" alt="Badge"> </a>
-<p align=center
 
 ![lol](Untitled93_20260111215032.png)
 
