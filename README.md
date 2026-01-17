@@ -1,12 +1,12 @@
-![madebyacreatorontumblr](Untitled93_20260111215040.png)
+![madebyacreatorontumblr](Untitled104_20260117145424.webp)
 
 <p align=center
 
-${\color{#c0ff48}"Can \space \color{#3affff} we \space \color{#c0ff48}go \space \color{#3affff}home \space \color{#c0ff48}now?" {}}$
-
+${\color{#1d1001}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \color{#cdb3a7}, \space \color{#ddcac3}sheriff \color{#e4d4ce}. \space \color{#fbf9f7}" {}}$
+ 
 <p align=center
 
-![byme](ezgif-482613e955a4e789.gif)
+![byme](ezgif-6a088bf7dcc35e86.gif)
 
 <p align=center
 
@@ -40,6 +40,6 @@ ${\color{#c0ff48}best \space \color{#3affff} viewed \space \color{#c0ff48} on \s
 
 ${\textsf{\color{#c0ff48}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
-![lol](Untitled93_20260111215032.png)
+![lol](Untitled104_20260117145430.webp)
 
 
