@@ -42,7 +42,7 @@ ${\textsf{\color{#cdb3a7}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align=center
 
-${\textsf{\color{#cdb3a7}SHOUT OUT TO MY 200th FOLLOWER !!  @abressiddique {}}$
+${\textsf{\color{#cdb3a7}SHOUT OUT TO MY 200th FOLLOWER !!  @abressiddique }}$
 
 ![lol](Untitled104_20260117145430.webp)
 
