@@ -2,7 +2,7 @@
 
 <p align=center
 
-${\color{#1d1001}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \color{#cdb3a7}, \space \color{#ddcac3}sheriff \color{#e4d4ce}. \space \color{#fbf9f7}" {}}$
+${\color{#533003}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \color{#cdb3a7}, \space \color{#ddcac3}sheriff \color{#e4d4ce}. \space \color{#fbf9f7}" {}}$
  
 <p align=center
 
@@ -14,31 +14,31 @@ ${\color{#1d1001}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \colo
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++𝙒𝙖𝙩𝙚𝙧𝙢𝙚𝙘𝙝.ꕀ+++_&color=3affff&style=flat-square)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Sadie_Alder.+++_&color=6c4202&style=flat-square)  
 
 <p align=center
 
-${\color{#c0ff48}willow \space \color{#3affff} , \space \color{#c0ff48} kaizer/kai/zee \space \color{#3affff} ✦ \space \color{#c0ff48} they \space \color{#3affff} / \space \color{#c0ff48}them. \space \color{#3affff}c+h \space \color{#c0ff48}freely. \space \color{#3affff}✦ \space \color{#c0ff48}sign \space \color{#3affff}atabook. {}}$
+${\color{#533003}willow \space \color{#896b59} , \space \color{#be9e8f} kaizer/kai/zee \space \color{#cdb3a7} ✦ \space \color{#cdb3a7} they \space \color{#cdb3a7} / \space \color{#ddcac3}them. \space \color{#e4d4ce}c+h \space \color{#e4d4ce}freely. \space \color{#e4d4ce}✦ \space \color{#fbf9f7}sign \space \color{#fbf9f7}atabook. {}}$
 
 <p align=center
 
-(⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐⁐)
+${\color{#533003}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#896b59}⁐⁐⁐⁐⁐⁐⁐⁐\color{#e4d4ce}⁐⁐⁐⁐⁐⁐⁐) {}}$
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{#c0ff48}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#3affff}✦ {}}$$     [rentry](https://rentry.co/warmface)  $${\color{#c0ff48}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate) $${\color{#3affff}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
+━　　[guns.lol](https://guns.lol/fatalstrike) $${\color{#533003}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#896b59}✦ {}}$$     [rentry](https://rentry.co/warmface)  $${\color{#cdb3a7}✦ {}}$$ [prns](https://pronouns.cc/destinedbyfate) $${\color{#fbf9f7}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
 
 <p align=center
 
-${\color{#c0ff48}best \space \color{#3affff} viewed \space \color{#c0ff48} on \space \color{#3affff}PC. {}}$
+${\color{#533003}best \space \color{#896b59} viewed \space \color{#cdb3a7} on \space \color{#fbf9f7}PC. {}}$
 
 <p align=center
 
-  ${\textsf{\color{#cdfffc}we are PLEASED, to meet you. }}$
+  ${\textsf{\color{#896b59}we are PLEASED, to meet you. }}$
 
 <p align=center
 
-${\textsf{\color{#c0ff48}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
+${\textsf{\color{#cdb3a7}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 ![lol](Untitled104_20260117145430.webp)
 
