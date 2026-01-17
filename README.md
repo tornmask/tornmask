@@ -10,7 +10,7 @@ ${\color{#533003}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \colo
 
 <p align=center
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&duration=4000&pause=1&color=3AFFFF&center=true&vCenter=true&width=435&lines=I+am+the+dog+under+your+couch;Gnashing+teeth+and+open+mouth;Shouldn't+have+clawed+my+own+way+out;Loving+you's+my+favorite+house.)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=8B623F&width=435&lines=All+the+small+things;True+care%2C+truth+brings;I'll+take+one+lift%2C;Your+ride%2C+best+trip.)](https://git.io/typing-svg)
 
 <p align=center
 
