@@ -42,7 +42,7 @@ ${\textsf{\color{#cdb3a7}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align=center
 
-${\textsf{\color{#fbf9f7} damn someone I followed me, a way to ruin the fun🫩 }}$
+${\textsf{\color{#fbf9f7} damn someone  unfollowed me, a way to ruin the fun🫩 }}$
 
 ![lol](Untitled104_20260117145430.webp)
 
