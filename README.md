@@ -42,7 +42,7 @@ ${\textsf{\color{#cdb3a7}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align=center
 
-${\textsf{\color{#fbf9f7} giving a shout-out to whoever becomes my 200th follower!}}$
+${\textsf{\color{#fbf9f7} SHOUT OUT TO @peanutsx50 for being my 200th follower! }}$
 
 ![lol](Untitled104_20260117145430.webp)
 
