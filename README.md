@@ -18,7 +18,7 @@ ${\color{#533003}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \colo
 
 <p align=center
 
-${\color{#533003}willow \space \color{#896b59} , \space \color{#be9e8f} kaizer/kai/zee \space \color{#cdb3a7} ✦ \space \color{#cdb3a7} they \space \color{#cdb3a7} / \space \color{#ddcac3}them. \space \color{#e4d4ce}c+h \space \color{#e4d4ce}freely. \space \color{#e4d4ce}✦ \space \color{#fbf9f7}sign \space \color{#fbf9f7}atabook. {}}$
+${\color{#533003}willow \space \color{#896b59} , \space \color{#be9e8f} kaizer/kai/zee \space \color{#cdb3a7} ✦ \space \color{#cdb3a7} they \space \color{#cdb3a7} / \space \color{#ddcac3}her. \space \color{#e4d4ce}c+h \space \color{#e4d4ce}freely. \space \color{#e4d4ce}✦ \space \color{#fbf9f7}sign \space \color{#fbf9f7}atabook. {}}$
 
 <p align=center
 
