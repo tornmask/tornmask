@@ -1,12 +1,12 @@
-![madebyacreatorontumblr](Untitled104_20260117145424.webp)
+![createdbyme](Untitled119_20260207101916.png)
 
 <p align=center
 
-${\color{#533003}" \space \color{#896b59} Nice \space \color{#be9e8f} hat  \color{#cdb3a7}, \space \color{#ddcac3}sheriff \color{#e4d4ce}. \space \color{#fbf9f7}" {}}$
+${\color{#533003}" \space \color{#896b59} If \space \color{#be9e8f} your \space \color{#cdb3a7} life \space \color{#ddcac3} was \space color{#e4d4ce} a \space \color{#fbf9f7} face \space \color{#fbf9f7}, \space \color{#fbf9f7} i'd \space \color{#fbf9f7} punch \space \color{#fbf9f7} it {}}$
  
 <p align=center
 
-![byme](ezgif-6a088bf7dcc35e86.gif)
+![byme](ezgif-4b246db7277636ae.gif)
 
 <p align=center
 
@@ -44,6 +44,6 @@ ${\textsf{\color{#cdb3a7}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 ${\textsf{\color{#fbf9f7} SHOUT OUT TO @peanutsx50 for being my 200th follower! }}$
 
-![lol](Untitled104_20260117145430.webp)
+![lol](Untitled119_20260207101956.png)
 
 
