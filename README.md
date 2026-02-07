@@ -2,7 +2,7 @@
 
 <p align=center
 
-${\color{#533003}" \space \color{#896b59} If \space \color{#533003} your \space \color{896b59} life \space \color{#533003} was \space \color{#896b59} a \space \color{#533003} face \color {#896b59}, \space \color{#533003} i'd \space \color{#896b59} punch \space \color{#533003} it." {}}$
+${\color{#c85627}" \space \color{#e08336} If \space \color{#f9d385} your \space \color{#c5b641} life \space \color{#c85627} was \space \color{#e08336} a \space \color{#f9d385} face \color {#c5b641}, \space \color{#c85627} i'd \space \color{#e08336} punch \space \color{#f9d385} it." {}}$
  
 <p align=center
 
