@@ -10,7 +10,7 @@ ${\color{#c85627}" \space \color{#e08336} If \space \color{#f9d385} your \space 
 
 <p align=center
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=8B623F&center=true&vCenter=true&width=435&lines=Cold+hearted+girl;do'nt+hurt+me+like+this+anymore;I'm+waiting+right+outside+your+door..;saying+"baby+can+we+talk?")](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Indie+Flower&size=30&duration=3000&pause=1&color=c85627&center=true&vCenter=true&width=435&lines=Cold+hearted+girl;don't+hurt+me+like+this+anymore;I'm+waiting+right+outside+your+door..;saying+"baby+can+we+talk?")](https://git.io/typing-svg)
 
 <p align=center
 
