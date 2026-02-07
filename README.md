@@ -2,7 +2,7 @@
 
 <p align=center
 
-${\color{#533003}" \space \color{#896b59} If \space \color{#be9e8f} your \space \color{#cdb3a7} life \space \color{#ddcac3} was \space color{#e4d4ce} a \space \color{#fbf9f7} face \space \color{#fbf9f7}, \space \color{#fbf9f7} i'd \space \color{#fbf9f7} punch \space \color{#fbf9f7} it {}}$
+${\color{#533003}" \space \color{#896b59} If \space \color{#533003} your \space \color{896b59} life \space \color{#533003} was \space \color{#896b59} a \space \color{#533003} face \color {#896b59}, \space \color{#533003} i'd \space \color{#896b59} punch \space \color{#533003} it." {}}$
  
 <p align=center
 
@@ -14,7 +14,7 @@ ${\color{#533003}" \space \color{#896b59} If \space \color{#be9e8f} your \space 
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Sadie_Adler.+++_&color=6c4202&style=plastic)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Kim_Pine.+++_&color=6c4202&style=plastic)  
 
 <p align=center
 
