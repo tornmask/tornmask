@@ -14,35 +14,35 @@ ${\color{#c85627}" \space \color{#e08336} If \space \color{#f9d385} your \space 
 
 <p align=center
 
-![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Kim_Pine.+++_&color=6c4202&style=plastic)  
+![Profile views](https://komarev.com/ghpvc/?username=yourusername&label=_+++Kim_Pine.+++_&color=e08336&style=plastic)  
 
 <p align=center
 
-${\color{#533003}willow \space \color{#896b59} , \space \color{#be9e8f} kaizer/kai/zee \space \color{#cdb3a7} ✦ \space \color{#cdb3a7} they \space \color{#cdb3a7} / \space \color{#ddcac3}her. \space \color{#e4d4ce}c+h \space \color{#e4d4ce}freely. \space \color{#e4d4ce}✦ \space \color{#fbf9f7}sign \space \color{#fbf9f7}atabook. {}}$
+${\color{#c85627}willow \space \color{#e08336} , \space \color{#f9d385} kaizer/kai/zee \space \color{#c5b641} ✦ \space \color{#c85627} they \space \color{#e08336} / \space \color{#f9d385}her. \space \color{#c5b641}c+h \space \color{#c85627}freely. \space \color{#e08336}✦ \space \color{#f9d385}sign \space \color{#c5b641}atabook. {}}$
 
 <p align=center
 
-${\color{#533003}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#896b59}⁐⁐⁐⁐⁐⁐⁐⁐\color{#e4d4ce}⁐⁐⁐⁐⁐⁐⁐) {}}$
+${\color{#c85627}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#e08336}⁐⁐⁐⁐⁐⁐⁐⁐\color{#f9d385}⁐⁐⁐⁐⁐⁐⁐) {}}$
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/tornmask) $${\color{#533003}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#896b59}✦ {}}$$     [rentry](https://rentry.co/astralwater)  $${\color{#cdb3a7}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#fbf9f7}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
+━　　[guns.lol](https://guns.lol/tornmask) $${\color{#c85627}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#e08336}✦ {}}$$     [rentry](https://rentry.co/astralwater)  $${\color{#f9d385}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#c5b641}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
 
 <p align=center
 
-${\color{#533003}best \space \color{#896b59} viewed \space \color{#cdb3a7} on \space \color{#fbf9f7}PC. {}}$
+${\color{#c85627}best \space \color{#896b59} viewed \space \color{#cdb3a7} on \space \color{#fbf9f7}PC. {}}$
 
 <p align=center
 
-  ${\textsf{\color{#896b59}we are PLEASED, to meet you. }}$
+  ${\textsf{\color{#e08336}we are PLEASED, to meet you. }}$
 
 <p align=center
 
-${\textsf{\color{#cdb3a7}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
+${\textsf{\color{#f9d385}AAA THANK YOU FOR PUTTING ME IN THE PT AWARDS!! }}$
 
 <p align=center
 
-${\textsf{\color{#fbf9f7} SHOUT OUT TO @peanutsx50 for being my 200th follower! }}$
+${\textsf{\color{#c5b641} SHOUT OUT TO @peanutsx50 for being my 200th follower! }}$
 
 ![lol](Untitled119_20260207101956.png)
 
