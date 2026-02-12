@@ -26,7 +26,7 @@ ${\color{#c85627}(⁐⁐⁐⁐⁐⁐⁐⁐⁐\color{#e08336}⁐⁐⁐⁐⁐⁐�
 
 <p align=center
 
-━　　[guns.lol](https://guns.lol/tornmask) $${\color{#c85627}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#e08336}✦ {}}$$     [rentry](https://rentry.co/astralwater)  $${\color{#f9d385}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#c5b641}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
+━　　[guns.lol](https://guns.lol/tornmask) $${\color{#c85627}✦ {}}$$ [atabook](https://fallenking.atabook.org/) $${\color{#e08336}✦ {}}$$     [rentry](https://rentry.co/angelicappearance)  $${\color{#f9d385}✦ {}}$$ [carrd](https://tornmaskk.carrd.co/) $${\color{#c5b641}✦ {}}$$ [pt-awards](https://github.com/pt-awards)　　━
 
 <p align=center
 
