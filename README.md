@@ -6,7 +6,7 @@ ${\color{#c85627}" \space \color{#e08336} If \space \color{#f9d385} your \space 
  
 <p align=center
 
-![byme](lv_0_20260207140223-ezgif.com-resize.gif)
+![byme](lv_0_20260207140223-ezgif.com-resize.gif) 
 
 <p align=center
 
